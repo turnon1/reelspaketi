@@ -4,14 +4,39 @@ Bu kütüphane, vintage halı/ebru dokulu arka plan ve ortadaki kraft parşömen
 
 ---
 
-## 1 - Er-Rahmân (الرَّحْمَنُ)
+## 1 - Allah (اللّٰهُ)
+
+### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
+* **3-7 sn (Merkez Kağıt Alanı):**
+  * Arapça Hat: اللّٰهُ
+  * Okunuş: Yâ Allah
+  * Kısa Anlam: Bütün isimlerin ve sıfatların sahibi, tek ilah.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
+* **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
+
+### 2. Instagram Açıklama Metni (Caption)
+Bazen kime sığınacağını bilemezsin. Ama Allah ismi, sana tek bir kapıyı işaret eder.
+
+🤲 *"Yâ Allah! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
+
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Allah"
+
+Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
+
+### 3. Hashtag Seti
+#allah #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
+
+---
+
+## 2 - er-Rahmân (اَلرَّحْمٰنُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kimsenin seni anlamadığını düşünüp yalnız mı hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّحْمَنُ
-  * Okunuş: Yâ Rahmân
-  * Kısa Anlam: Yarattığı tüm mahlukata ayrım gözetmeksizin sonsuz merhamet eden.
+  * Arapça Hat: اَلرَّحْمٰنُ
+  * Okunuş: Yâ er-Rahmân
+  * Kısa Anlam: Dünya ve ahirette bütün mahlukata merhamet eden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Dünyanın yorgunluğundan O'nun sonsuz ve kuşatıcı şefkatine sığınmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -20,7 +45,7 @@ Bazen her kapı yüzüne kapanmış, seni hiç kimse duymuyormuş gibi gelir. Oy
 
 🤲 *"Ey merhameti her şeyi kuşatan Rahmân! Daralan göğsüme inşirah, kırılan umutlarıma rahmetinle can ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 298 kere "Yâ Rahmân"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Rahmân"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -29,14 +54,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 2 - Er-Rahîm (الرَّحِيمُ)
+## 3 - er-Rahîm (اَلرَّحِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hatalarının affedilmeyecek kadar büyük olduğunu mu sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّحِيمُ
-  * Okunuş: Yâ Rahîm
-  * Kısa Anlam: Kendisine sığınan inananlara ahirette özel merhamet ve lütufta bulunan.
+  * Arapça Hat: اَلرَّحِيمُ
+  * Okunuş: Yâ er-Rahîm
+  * Kısa Anlam: Ahirette müminlere merhamet eden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbini tövbenin nuruyla tazelemek ve ilahi mağfirete kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -45,7 +70,7 @@ Hata yapmak insana, sonsuz bağışlamak ve şefkatle sarmak ise sadece Allah'a 
 
 🤲 *"Yâ Rahîm! Hatalarımızı bağışla, bizi sonsuz şefkatinle sar ve ebedi yurdumuzda lütfunla ödüllendir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 258 kere "Yâ Rahîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Rahîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -54,14 +79,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 3 - El-Melik (الْمَلِكُ)
+## 4 - el-Melik (اَلْمَلِكُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Gelecek kaygısı ve dünyanın yükü omuzlarını çok mu ağırlaştırdı?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمَلِكُ
-  * Okunuş: Yâ Melik
-  * Kısa Anlam: Bütün kainatın mutlak sahibi, egemenliğinde ortağı olmayan tek hükümdar.
+  * Arapça Hat: اَلْمَلِكُ
+  * Okunuş: Yâ el-Melik
+  * Kısa Anlam: Bütün kâinatın gerçek sahibi ve mutlak hükümdarı.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Gerçek sahibin O olduğunu bilerek dünyevi korkulardan kurtulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -70,7 +95,7 @@ Mülk O'nundur, hüküm O'nundur. Fanilerin güç gösterilerine, gelip geçici 
 
 🤲 *"Yâ Melik! Gönlümüzü dünyevi korkuların esaretinden kurtar, bizi yalnız Sana kul, yalnız Sana teslim eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 90 kere "Yâ Melik"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Melik"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -79,14 +104,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 4 - El-Kuddûs (الْقُدُّوسُ)
+## 5 - el-Kuddûs (اَلْقُدُّوسُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İç dünyandaki karmaşadan ve günahların ağırlığından yoruldun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقُدُّوسُ
-  * Okunuş: Yâ Kuddûs
-  * Kısa Anlam: Her türlü kusur, noksanlık ve ayıptan münezzeh, tertemiz olan.
+  * Arapça Hat: اَلْقُدُّوسُ
+  * Okunuş: Yâ el-Kuddûs
+  * Kısa Anlam: Her türlü eksiklik ve noksanlıktan uzak olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Ruhunu vesveselerden, kalbini keder ve günah kirlerinden arındırmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -95,7 +120,7 @@ Dünya kalbimizi yorar, düşüncelerimizi bulandırır. Ancak Kuddûs olan Rabb
 
 🤲 *"Yâ Kuddûs! Kalbimizi hasetten, nefretten ve gaflet kirlerinden temizle; ruhumuza duruluk ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 170 kere "Yâ Kuddûs"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kuddûs"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -104,14 +129,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 5 - Es-Selâm (السَّلاَمُ)
+## 6 - es-Selâm (اَلسَّلَامُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kalbinde dinmek bilmeyen o huzursuzluk sana ne anlatıyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: السَّلاَمُ
-  * Okunuş: Yâ Selâm
-  * Kısa Anlam: Her türlü tehlike ve felaketten selamete çıkaran, esenlik veren.
+  * Arapça Hat: اَلسَّلَامُ
+  * Okunuş: Yâ es-Selâm
+  * Kısa Anlam: Her türlü tehlikelerden selamete çıkaran.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İçsel fırtınaları dindirmek, kalbe ve hayata sükunet bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -120,7 +145,7 @@ Gerçek huzur dünyalık şeylerin çokluğunda değil, kalbin Selâm ismine tes
 
 🤲 *"Yâ Selâm! Bunalmış ruhlarımıza esenlik, korku dolu anlarımıza emniyet ve selamet ihsan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 131 kere "Yâ Selâm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Selâm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -129,39 +154,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 6 - El-Mü'min (الْمُؤْمِنُ)
+## 7 - el-Mü (اَلْمُؤْمِنُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "İçinde bir türlü susturamadığın o derin korkuların var mı?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُؤْمِنُ
-  * Okunuş: Yâ Mü'min
-  * Kısa Anlam: Gönüllerde iman ışığını yakan, kendine sığınanlara güven veren.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Bütün korkulardan emin olmak ve Sarsılmaz bir güvene kavuşmak için."
+  * Arapça Hat: اَلْمُؤْمِنُ
+  * Okunuş: Yâ el-Mü
+  * Kısa Anlam: Güven veren, iman nurunu kalplere yerleştiren.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Korku, insanın gücünün bittiği yerde başlar. Oysa Mü'min olan Allah, kendisine sığınan hiçbir kalbi güvensiz ve sahipsiz bırakmaz. O'na sığınan için korku biter, sarsılmaz bir teslimiyet başlar.
+Bazen kime sığınacağını bilemezsin. Ama el-Mü ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mü'min! Kalplerimizi iman nuru ile sabit kıl, bizi her iki cihanda da korktuklarımızdan emin eyle."*
+🤲 *"Yâ el-Mü! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 137 kere "Yâ Mü'min"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Mü"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#mumin #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmü #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 7 - El-Müheymin (الْمُهَيْمِنُ)
+## 8 - el-Müheymin (اَلْمُهَيْمِنُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Görünmeyen tehlikelerden ve bilinmezlikten mi endişeleniyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُهَيْمِنُ
-  * Okunuş: Yâ Müheymin
-  * Kısa Anlam: Bütün varlıkları gözetip koruyan, her şeyin hallerine şahit olan.
+  * Arapça Hat: اَلْمُهَيْمِنُ
+  * Okunuş: Yâ el-Müheymin
+  * Kısa Anlam: Gözetip koruyan, her şeye şahit olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun şefkatli himayesi altına girmek ve her türlü şerden korunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -170,7 +195,7 @@ Sen farkında bile değilken seni sayısız görünmez tuzaktan koruyan bir göz
 
 🤲 *"Yâ Müheymin! Bizi nefsimizin ve şeytanın şerlerinden, görünür görünmez tehlikelerden muhafaza eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 145 kere "Yâ Müheymin"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Müheymin"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -179,14 +204,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 8 - El-Azîz (الْعَزِيزُ)
+## 9 - el-Azîz (اَلْعَزِيزُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İnsanların seni küçük düşürmesinden veya haksızlığa uğramaktan mı korkuyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَزِيزُ
-  * Okunuş: Yâ Azîz
-  * Kısa Anlam: Mağlup edilmesi asla mümkün olmayan, mutlak galip ve izzet sahibi.
+  * Arapça Hat: اَلْعَزِيزُ
+  * Okunuş: Yâ el-Azîz
+  * Kısa Anlam: Mağlup edilmesi mümkün olmayan galip.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İzzet ve vakar bulmak, haksızlıklara karşı dimdik durabilmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -195,7 +220,7 @@ Bütün izzet ve şeref yalnızca Allah'a aittir. İzzeti insanların rızasınd
 
 🤲 *"Yâ Azîz! Bizi Sana itaatin izzetiyle şereflendir, günahların ve heveslerin zilletinden muhafaza buyur."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 94 kere "Yâ Azîz"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Azîz"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -204,14 +229,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 9 - El-Cebbâr (الْجَبَّارُ)
+## 10 - el-Cebbâr (اَلْجَبَّارُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kalbin öyle bir kırıldı ki, bir daha toparlanamayacağını mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْجَبَّارُ
-  * Okunuş: Yâ Cebbâr
-  * Kısa Anlam: Kırılanları onaran, dilediğini zorlanmadan yaptıran, her yarayı saran.
+  * Arapça Hat: اَلْجَبَّارُ
+  * Okunuş: Yâ el-Cebbâr
+  * Kısa Anlam: İstediğini mutlaka yapan, dilediğine ulaşan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kırılmış kalbini O'nun kudretli ellerine emanet edip onarılmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -220,7 +245,7 @@ Cebbâr ismi sadece azamet demek değildir; Arapça kökeninde "kırık kemiği 
 
 🤲 *"Yâ Cebbâr! Kırılan kalbimizi onar, eksiklerimizi tamamla, dertlerimize lütfunla derman ol."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 206 kere "Yâ Cebbâr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Cebbâr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -229,14 +254,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 10 - El-Mütekebbir (الْمُتَكَبِّرُ)
+## 11 - el-Mütekebbir (اَلْمُتَكَبِّرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kibrine yenik düşenlerin zulmü seni çaresiz mi bıraktı?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُتَكَبِّرُ
-  * Okunuş: Yâ Mütekebbir
-  * Kısa Anlam: Büyüklükte eşi ve benzeri olmayan, kibriye ve azamet sahibi.
+  * Arapça Hat: اَلْمُتَكَبِّرُ
+  * Okunuş: Yâ el-Mütekebbir
+  * Kısa Anlam: Büyüklükte eşi ve benzeri olmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kendi aczini anlayıp gerçek büyüklüğü sadece O'na teslim etmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -245,7 +270,7 @@ Büyüklük taslayan fani insanoğlu bir hiçtir. Gerçek büyüklük yalnızca 
 
 🤲 *"Yâ Mütekebbir! Kalbimizi kibir ve gurur felaketinden koru, bizi rızana ulaştıracak tevazu ile süsle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 662 kere "Yâ Mütekebbir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mütekebbir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -254,39 +279,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 11 - El-Hâlık (الْخَالِقُ)
+## 12 - el-Hâlik (اَلْخَالِقُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Hayatında her şeyin tıkandığını ve yeni bir yol olmadığını mı düşünüyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْخَالِقُ
-  * Okunuş: Yâ Hâlık
-  * Kısa Anlam: Yoktan var eden, her şeyi takdir edip mükemmel ölçüyle yaratan.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Yokluktan ve çaresizlikten yepyeni hayırlı kapılar yaratılması için."
+  * Arapça Hat: اَلْخَالِقُ
+  * Okunuş: Yâ el-Hâlik
+  * Kısa Anlam: Her şeyi yaratan.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Hiçbir şey yokken kainatı yoktan var eden Hâlık, senin çıkmaz sokak zannettiğin yerde bir anda nur dolu kapılar açmaya kadirdir. İmkansızlık insana aittir, Allah için sadece "Ol" demek yeterlidir.
+Bazen kime sığınacağını bilemezsin. Ama el-Hâlik ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Hâlık! Daralan hayatımıza ferahlık, kilitlenen işlerimize hayırlı çıkış yolları halk eyle."*
+🤲 *"Yâ el-Hâlik! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 731 kere "Yâ Hâlık"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Hâlik"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#halik #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elhâlik #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 12 - El-Bâri (الْبَارِئُ)
+## 13 - el-Bâri (اَلْبَارِئُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Bedeninde ya da ruhunda bir ahenk bozukluğu mu hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَارِئُ
-  * Okunuş: Yâ Bâri
-  * Kısa Anlam: Her şeyi kusursuz, dengeli ve birbirine uyumlu şekilde meydana getiren.
+  * Arapça Hat: اَلْبَارِئُ
+  * Okunuş: Yâ el-Bâri
+  * Kısa Anlam: Eşsiz ve kusursuz yaratan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Bedenine ve ruhuna ilahi nizamın şifasını ve dengesini çekmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -295,7 +320,7 @@ Kainattaki her bir hücreyi kusursuz nizamla var eden Bâri, senin dağılmış 
 
 🤲 *"Yâ Bâri! Bedenimize sıhhat, ruhumuza nizam, hayatımıza ilahi uyum ve dinginlik bahşet."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 214 kere "Yâ Bâri"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bâri"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -304,14 +329,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 13 - El-Musavvir (الْمُصَوِّرُ)
+## 14 - el-Musavvir (اَلْمُصَوِّرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kendi kaderinin veya hayatının şeklinden hoşnutsuz mu kaldın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُصَوِّرُ
-  * Okunuş: Yâ Musavvir
-  * Kısa Anlam: Her varlığa en güzel sureti ve en mükemmel biçimi veren.
+  * Arapça Hat: اَلْمُصَوِّرُ
+  * Okunuş: Yâ el-Musavvir
+  * Kısa Anlam: Her şeye şekil ve suret veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İçsel ve dışsal güzellik, ahlak ve niyet güzelliğine kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -320,7 +345,7 @@ Seni anne karnında şekillendiren, suretini ve ruhunu en güzel kıvamda yarata
 
 🤲 *"Yâ Musavvir! Yaratılışımızı güzelleştirdiğin gibi ahlakımızı, amellerimizi ve akıbetimizi de güzelleştir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 336 kere "Yâ Musavvir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Musavvir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -329,14 +354,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 14 - El-Gaffâr (الْغَفَّارُ)
+## 15 - el-Gaffâr (اَلْغَفَّارُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Geçmişindeki hatalar peşini bırakmıyor ve kalbini mi acıtıyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْغَفَّارُ
-  * Okunuş: Yâ Gaffâr
-  * Kısa Anlam: Günahları tekrar tekrar örten, daima bağışlayan ve ayıpları gizleyen.
+  * Arapça Hat: اَلْغَفَّارُ
+  * Okunuş: Yâ el-Gaffâr
+  * Kısa Anlam: Günahları çokça bağışlayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Geçmişin yükünden kurtulmak ve tertemiz bir başlangıç yapmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -345,7 +370,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Gaffâr! Kusurlarımızı ört, günahlarımızı bağışla ve bizi nefsimizin utancıyla baş başa bırakma."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1281 kere "Yâ Gaffâr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Gaffâr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -354,14 +379,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 15 - El-Kahhâr (الْقَهَّارُ)
+## 16 - el-Kahhâr (اَلْقَهَّارُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sana haksızlık eden zalimlerin yanına kar kalacağını mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقَهَّارُ
-  * Okunuş: Yâ Kahhâr
-  * Kısa Anlam: Her şeye mutlak galip gelen, azgınları ve zalimleri kahreden.
+  * Arapça Hat: اَلْقَهَّارُ
+  * Okunuş: Yâ el-Kahhâr
+  * Kısa Anlam: Her şeye galip gelen, kahreden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Nefsin esaretini kırmak ve zalimlerin şerrini bertaraf etmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -370,7 +395,7 @@ Mazlumun ahı yerde kalmaz; çünkü mizan kuruludur ve Kahhâr olan Allah her �
 
 🤲 *"Yâ Kahhâr! Bizi esir almaya çalışan nefsimizin azgınlığını kır, mazlumlara nusret ihsan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 306 kere "Yâ Kahhâr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kahhâr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -379,14 +404,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 16 - El-Vehhâb (الْوَهَّابُ)
+## 17 - el-Vehhâb (اَلْوَهَّابُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Karşılıksız bir lütfa ve tükenmeyen bir berekete mi muhtaçsın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَهَّابُ
-  * Okunuş: Yâ Vehhâb
-  * Kısa Anlam: Karşılıksız, sebepsiz ve hesapsızca bolca bağışlayan.
+  * Arapça Hat: اَلْوَهَّابُ
+  * Okunuş: Yâ el-Vehhâb
+  * Kısa Anlam: Karşılıksız çokça ihsan eden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Umulmadık kapılardan ilahi ihsanlara ve lütuflara kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -395,7 +420,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Vehhâb! Katından bize tükenmez rahmet, hesapsız rızık ve hayırlı kapılar bağışla."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 14 kere "Yâ Vehhâb"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vehhâb"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -404,14 +429,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 17 - Er-Rezzâk (الرَّزَّاقُ)
+## 18 - er-Rezzâk (اَلرَّزَّاقُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Geçim sıkıntısı ve rızık endişesi uykularını mı kaçırıyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّزَّاقُ
-  * Okunuş: Yâ Rezzâk
-  * Kısa Anlam: Bütün canlıların maddi ve manevi rızkını veren, kefil olan.
+  * Arapça Hat: اَلرَّزَّاقُ
+  * Okunuş: Yâ er-Rezzâk
+  * Kısa Anlam: Bütün canlıların rızkını veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Rızkın O'ndan geldiğini bilerek bereket ve kalp zenginliğine ermek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -420,7 +445,7 @@ Karanlık gecede kara taşın altındaki karıncayı unutmayan Rezzâk, seni asl
 
 🤲 *"Yâ Rezzâk! Soframıza helal ve bereketli rızık, kalbimize doyum ve kanaat zenginliği ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 308 kere "Yâ Rezzâk"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Rezzâk"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -429,14 +454,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 18 - El-Fettâh (الْفَتَّاحُ)
+## 19 - el-Fettâh (اَلْفَتَّاحُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Bütün kapıların yüzüne kilitlendiğini mi düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْفَتَّاحُ
-  * Okunuş: Yâ Fettâh
-  * Kısa Anlam: Her türlü zorluğu kolaylaştıran, hayır ve rahmet kapılarını açan.
+  * Arapça Hat: اَلْفَتَّاحُ
+  * Okunuş: Yâ el-Fettâh
+  * Kısa Anlam: Her türlü zorlukları açan ve kolaylaştıran.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kilitli kalmış kapıların ardındaki ilahi müjdelere kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -445,7 +470,7 @@ Bazen bir kapı kapanır çünkü ardındaki yol senin için hayırlı değildir
 
 🤲 *"Yâ Fettâh! Üzerimize hayır kapılarını aç, tıkanmış işlerimizi kolaylaştır ve kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 489 kere "Yâ Fettâh"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Fettâh"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -454,14 +479,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 19 - El-Alîm (الْعَلِيمُ)
+## 20 - el-Alîm (اَلْعَلِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kimseye anlatamadığın o derin acıyı kimsenin bilmediğini mi sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَلِيمُ
-  * Okunuş: Yâ Alîm
-  * Kısa Anlam: Gizliyi, açığı, geçmişi ve geleceği hakkıyla bilen.
+  * Arapça Hat: اَلْعَلِيمُ
+  * Okunuş: Yâ el-Alîm
+  * Kısa Anlam: Her şeyi en ince ayrıntısıyla bilen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbindeki söze dökülemeyen niyazları O'nun ilmine havale etmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -470,7 +495,7 @@ Diline dökemediğin kelimeleri, gözünden akıtamadığın yaşları ve kalbin
 
 🤲 *"Yâ Alîm! Kalbimizin gizli kırıklarını bilen Sensin; bizi ilminle aydınlat, hakkımızda hayırlı olanı kalbimize sevdir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 150 kere "Yâ Alîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Alîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -479,14 +504,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 20 - El-Kâbıd (الْقَابِضُ)
+## 21 - el-Kâbıd (اَلْقَابِضُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Göğsün daralıyor, için içine sığmıyor gibi mi hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقَابِضُ
-  * Okunuş: Yâ Kâbıd
-  * Kısa Anlam: Hikmeti gereği dilediğinin rızkını ve ferahlığını daraltan, kabzeden.
+  * Arapça Hat: اَلْقَابِضُ
+  * Okunuş: Yâ el-Kâbıd
+  * Kısa Anlam: Rızkı daraltan, her şeyi sıkan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Ruhun daralma anlarında sabredip bu imtihandan arınarak çıkmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -495,7 +520,7 @@ Kalbin daralması bazen bir ceza değil, kalbin Rabbini hatırlaması için ilah
 
 🤲 *"Yâ Kâbıd! Ruhumuzun daraldığı anlarda bize sabır ver, darlığımızı hayırla genişliğe tebdil eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 903 kere "Yâ Kâbıd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kâbıd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -504,14 +529,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 21 - El-Bâsıt (الْبَاسِطُ)
+## 22 - el-Bâsıt (اَلْبَاسِطُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Karanlık bir gecenin ardından gelen sabah gibi bir ferahlık mı arıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَاسِطُ
-  * Okunuş: Yâ Bâsıt
-  * Kısa Anlam: Dilediğine rızkı ve gönül ferahlığını bolca yayan, genişleten.
+  * Arapça Hat: اَلْبَاسِطُ
+  * Okunuş: Yâ el-Bâsıt
+  * Kısa Anlam: Rızkı genişleten, açan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbe genişlik, ömre bereket ve tükenmez bir inşirah bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -520,7 +545,7 @@ Her zorluğun ardından bir kolaylık, her hüznün ardından gelen bir inşirah
 
 🤲 *"Yâ Bâsıt! Göğsümüzü ferahlat, rızkımızı genişlet ve daralan dünyamızı huzurunla doldur."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 72 kere "Yâ Bâsıt"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bâsıt"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -529,14 +554,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 22 - El-Hâfıd (الْخَافِضُ)
+## 23 - el-Hâfıd (اَلْخَافِضُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kibrine kapılıp başkalarını ezenlerin hep kazanacağını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْخَافِضُ
-  * Okunuş: Yâ Hâfıd
-  * Kısa Anlam: Kibirli ve zalimleri alçaltan, haddini bildiren.
+  * Arapça Hat: اَلْخَافِضُ
+  * Okunuş: Yâ el-Hâfıd
+  * Kısa Anlam: Dereceleri alçaltan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Nefsin kibrinden uzak durup alçakgönüllülükle O'na boyun eğmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -545,7 +570,7 @@ Dünyada kendisini büyük görenlerin sonu hüsrandır. Hâfıd olan Allah, zul
 
 🤲 *"Yâ Hâfıd! Bizi kibrin ve gururun zilletinden koru, nefsimizi hevâsından alçaltıp ruhumuzu yücelt."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1481 kere "Yâ Hâfıd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hâfıd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -554,14 +579,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 23 - Er-Râfi' (الرَّافِعُ)
+## 24 - er-Râfi (اَلرَّافِعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Düştüğün yerden bir daha asla kalkamayacağını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّافِعُ
-  * Okunuş: Yâ Râfi'
-  * Kısa Anlam: Tevazu sahiplerini yücelten, dereceleri yükselten.
+  * Arapça Hat: اَلرَّافِعُ
+  * Okunuş: Yâ er-Râfi
+  * Kısa Anlam: Dereceleri yükselten.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Manevi makamlarda yükselmek ve hakikat şerefine ermek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -570,7 +595,7 @@ Allah için alçalanı hiç kimse küçültemez; çünkü onu Râfi' olan Allah 
 
 🤲 *"Yâ Râfi'! Bizi ahlakça, ilimce ve imanca yükselt; iki cihanda da şerefli kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 351 kere "Yâ Râfi'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Râfi'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -579,39 +604,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 24 - El-Mu'ız (الْمُعِزُّ)
+## 25 - el-Muizz (اَلْمُعِزُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "İtibarını kaybetmekten veya haksız yere küçük düşmekten mi korkuyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُعِزُّ
-  * Okunuş: Yâ Mu'ız
-  * Kısa Anlam: Dilediğine izzet, şeref ve yücelik bahşeden.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Gerçek şerefi O'nun rızasında bulup izzetli bir kul olmak için."
+  * Arapça Hat: اَلْمُعِزُّ
+  * Okunuş: Yâ el-Muizz
+  * Kısa Anlam: İzzet ve şeref veren.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-İzzet insanların alkışlarında değil, Allah'a kulluktadır. Mu'ız olan Allah bir kuluna izzet takdir ettiğinde, bütün dünya bir araya gelse onu küçük düşüremez. Yalnızca O'nun kapısında izzet ara.
+Bazen kime sığınacağını bilemezsin. Ama el-Muizz ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mu'ız! Bizi İslam'ın ve güzel ahlakın izzetiyle aziz eyle; dünyevi hırsların zilletine düşürme."*
+🤲 *"Yâ el-Muizz! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 117 kere "Yâ Mu'ız"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Muizz"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#muiz #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmuizz #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 25 - El-Müzill (الْمُذِلُّ)
+## 26 - el-Müzill (اَلْمُذِلُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sana tuzak kuranların kötülüklerinden nasıl kurtulacağını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُذِلُّ
-  * Okunuş: Yâ Müzill
-  * Kısa Anlam: Kötülük peşinde koşan zalimleri zelil ve perişan eden.
+  * Arapça Hat: اَلْمُذِلُّ
+  * Okunuş: Yâ el-Müzill
+  * Kısa Anlam: Zillete düşüren, hor ve hakir kılan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Düşmanların hile ve tuzaklarından emin olup korunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -620,7 +645,7 @@ Tuzak kuranların en hayırlısı Allah'tır. Müzill olan Rabbin, kötülük ta
 
 🤲 *"Yâ Müzill! Bize tuzak kuran kötü niyetlilerin şerrini defeyle, onları hilelerinde zelil kıl ve bizi muhafaza buyur."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 770 kere "Yâ Müzill"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Müzill"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -629,14 +654,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 26 - Es-Semî' (السَّمِيعُ)
+## 27 - es-Semî (اَلسَّمِيعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sesini hiç kimseye duyuramadığını mı hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: السَّمِيعُ
-  * Okunuş: Yâ Semî'
-  * Kısa Anlam: Gizli, açık, fısıltı halindeki her duayı ve sesi eksiksiz işiten.
+  * Arapça Hat: اَلسَّمِيعُ
+  * Okunuş: Yâ es-Semî
+  * Kısa Anlam: Her şeyi işiten.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbindeki sessiz iniltilerin ilahi huzurda duyulduğunu bilerek huzur bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -645,7 +670,7 @@ Gecenin karanlığında yastığa dökülen yaşların fısıltısını bile iş
 
 🤲 *"Yâ Semî'! Sessiz dualarımızı, dilsiz yakarışlarımızı işit; katından bize hayırlı icabetler nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 180 kere "Yâ Semî'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Semî'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -654,14 +679,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 27 - El-Basîr (الْبَصِيرُ)
+## 28 - el-Basîr (اَلْبَصِيرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Çektiğin sabrı ve döktüğün gözyaşını kimse görmüyor mu zannediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَصِيرُ
-  * Okunuş: Yâ Basîr
-  * Kısa Anlam: Her şeyi, en karanlık ve gizli hallerinde dahi eksiksiz gören.
+  * Arapça Hat: اَلْبَصِيرُ
+  * Okunuş: Yâ el-Basîr
+  * Kısa Anlam: Her şeyi gören.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun şefkatli bakışları altında olduğunu bilerek güven bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -670,7 +695,7 @@ Hiçbir sabır zayi olmaz, hiçbir gizli fedakarlık kaybolmaz. Basîr olan Alla
 
 🤲 *"Yâ Basîr! Bizi daima Senin razı olduğun güzellikleri gören ve Senin gözetiminde olduğunun bilincinde olanlardan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 302 kere "Yâ Basîr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Basîr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -679,14 +704,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 28 - El-Hakem (الْحَكَمُ)
+## 29 - el-Hakem (اَلْحَكَمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyadaki haksızlıklar karşısında adaletin yerini bulmayacağından mı endişelisin?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَكَمُ
-  * Okunuş: Yâ Hakem
-  * Kısa Anlam: Hüküm veren, hakkı batıldan ayıran ve adaleti kusursuz tecelli ettiren.
+  * Arapça Hat: اَلْحَكَمُ
+  * Okunuş: Yâ el-Hakem
+  * Kısa Anlam: Mutlak hakim, hüküm ve hikmet sahibi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Haklı davanda O'nun kusursuz hakimliğine teslim olup ferahlamak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -695,7 +720,7 @@ Kulların hükümleri yanıltıcı olabilir ama El-Hakem olan Allah'ın hükmü 
 
 🤲 *"Yâ Hakem! Bizi hak ve adalet üzere sabit kıl, hakkımızda en hayırlı ve adil hükümleri ihsan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 68 kere "Yâ Hakem"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hakem"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -704,14 +729,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 29 - El-Adl (الْعَدْلُ)
+## 30 - el-Adl (اَلْعَدْلُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Uğradığın haksızlığın karşılıksız kalacağını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَدْلُ
-  * Okunuş: Yâ Adl
-  * Kısa Anlam: Mutlak adil olan, zerrece haksızlık ve zulüm yapmayan.
+  * Arapça Hat: اَلْعَدْلُ
+  * Okunuş: Yâ el-Adl
+  * Kısa Anlam: Mutlak adil olan, adaleti gerçekleştiren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İlahi adaletin şaşmaz dengesine güvenip kalbini huzura kavuşturmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -720,7 +745,7 @@ Bir zerre iyilik de bir zerre kötülük de O'nun adalet terazisinde karşılı�
 
 🤲 *"Yâ Adl! Kalbimizi adaletten ayırma, bizi zulmetmekten de zulme uğramaktan da muhafaza eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 104 kere "Yâ Adl"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Adl"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -729,14 +754,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 30 - El-Latîf (اللَّطِيفُ)
+## 31 - el-Latîf (اَللَّطِيفُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İşlerin nasıl çözüleceğini aklın almıyor ve tıkandın mı?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: اللَّطِيفُ
-  * Okunuş: Yâ Latîf
-  * Kısa Anlam: En ince ayrıntıları bilen, lütfuyla işleri hissettirmeden güzelleştiren.
+  * Arapça Hat: اَللَّطِيفُ
+  * Okunuş: Yâ el-Latîf
+  * Kısa Anlam: Lütuf ve inayeti bol olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun ince, sezilmez lütuflarıyla en zor işlerin tereyağından kıl çeker gibi çözülmesi için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -745,7 +770,7 @@ Sen farkında bile olmadan hayatındaki taşları yerine koyan, karanlık yollar
 
 🤲 *"Yâ Latîf! Bize görünmez lütuflarınla yardım et, düğümlenmiş dertlerimizi incelikle çözüver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 129 kere "Yâ Latîf"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Latîf"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -754,14 +779,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 31 - El-Habîr (الْخَبِيرُ)
+## 32 - el-Habîr (اَلْخَبِيرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Geleceğin belirsizliği kalbini sürekli tedirgin mi ediyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْخَبِيرُ
-  * Okunuş: Yâ Habîr
-  * Kısa Anlam: Her şeyin iç yüzünden, gizlisinden ve hakikatinden haberdar olan.
+  * Arapça Hat: اَلْخَبِيرُ
+  * Okunuş: Yâ el-Habîr
+  * Kısa Anlam: Her şeyden haberdar olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Olayların görünmeyen hayırlarına güvenip kaygılardan kurtulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -770,7 +795,7 @@ Sen sadece olayların dış yüzünü görürsün; oysa Habîr olan Allah her ş
 
 🤲 *"Yâ Habîr! İşlerimizin akıbetini hayreyle, bizi görünmeyen şerlerden koruyup hayırlara sevk et."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 812 kere "Yâ Habîr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Habîr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -779,14 +804,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 32 - El-Halîm (الْحَلِيمُ)
+## 33 - el-Halîm (اَلْحَلِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hataların yüzünden hemen cezalandırılmaktan mı korkuyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَلِيمُ
-  * Okunuş: Yâ Halîm
-  * Kısa Anlam: Cezalandırmada acele etmeyen, son derece yumuşak ve müsamahakar davranan.
+  * Arapça Hat: اَلْحَلِيمُ
+  * Okunuş: Yâ el-Halîm
+  * Kısa Anlam: Cezayı erteleyen, yumuşak davranan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Öfkeyi dindirmek, kalbe hilm ve sükunet tohumları ekmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -795,7 +820,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Halîm! Günahlarımıza karşı hilminle muamele et, kalbimize sabır, dilimize nezaket ihsan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 88 kere "Yâ Halîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Halîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -804,14 +829,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 33 - El-Azîm (الْعَظِيمُ)
+## 34 - el-Azîm (اَلْعَظِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dertlerin gözünde koca bir dağ gibi mi büyüyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَظِيمُ
-  * Okunuş: Yâ Azîm
-  * Kısa Anlam: Büyüklüğünün ve kudretinin sonu olmayan, mutlak azamet sahibi.
+  * Arapça Hat: اَلْعَظِيمُ
+  * Okunuş: Yâ el-Azîm
+  * Kısa Anlam: Büyüklüğünde sınır olmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Derdinin değil, derdinden çok daha büyük olan Rabbinin büyüklüğünü görmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -820,7 +845,7 @@ Gözünde büyüttüğün dertler kâinatın yanında nedir ki? Kâinatı yarata
 
 🤲 *"Yâ Azîm! Sonsuz azametin karşısında hürmetle eğiliyoruz; aczimizi bağışla, bizi kudretinle himaye eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1020 kere "Yâ Azîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Azîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -829,14 +854,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 34 - El-Gafûr (الْغَفُورُ)
+## 35 - el-Gafûr (اَلْغَفُورُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Yine aynı günaha düştüm, yüzüm yok diye mi düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْغَفُورُ
-  * Okunuş: Yâ Gafûr
-  * Kısa Anlam: Mağfireti pek bol olan, affı ve merhameti sınır tanımayan.
+  * Arapça Hat: اَلْغَفُورُ
+  * Okunuş: Yâ el-Gafûr
+  * Kısa Anlam: Bağışlaması bol olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Ümitsizlik tuzağını kırıp sınırsız mağfiret deryasında yıkanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -845,7 +870,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Gafûr! Haddimizi aştık, nefsimize yenildik; sonsuz mağfiretinle bizi affet ve bağışla."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1286 kere "Yâ Gafûr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Gafûr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -854,14 +879,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 35 - Eş-Şekûr (الشَّكُورُ)
+## 36 - eş-Şekûr (اَلشَّكُورُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Yaptığın fedakarlıkların nankörlükle karşılandığını mı hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الشَّكُورُ
-  * Okunuş: Yâ Şekûr
-  * Kısa Anlam: Azıcık bir amele dahi kat kat büyük mükafatlar veren.
+  * Arapça Hat: اَلشَّكُورُ
+  * Okunuş: Yâ eş-Şekûr
+  * Kısa Anlam: Az amele çok sevap veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İyiliklerin karşılığını fani insanlardan değil, kat kat veren Rabbinden beklemek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -870,7 +895,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Şekûr! Verdiğin nimetlere şükreden bir kalp ihsan et; küçük amellerimizi rahmetinle bereketlendir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 526 kere "Yâ Şekûr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Şekûr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -879,14 +904,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 36 - El-Aliyy (الْعَلِيُّ)
+## 37 - el-Aliyy (اَلْعَلِيُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyanın bayağı dertleri ruhunu aşağıya mı çekiyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَلِيُّ
-  * Okunuş: Yâ Aliyy
-  * Kısa Anlam: Şanı, kadri ve mertebesi her şeyden yüce ve üstün olan.
+  * Arapça Hat: اَلْعَلِيُّ
+  * Okunuş: Yâ el-Aliyy
+  * Kısa Anlam: Yüceliğinde sınır olmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Basit heveslerden sıyrılıp ruhunu yüce ideallere eriştirmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -895,7 +920,7 @@ Yeryüzü fanidir, dertleri de gelip geçicidir. El-Aliyy olan Rabbe bağlanan b
 
 🤲 *"Yâ Aliyy! Bizi dünya kaygılarının düşüklüğünden kurtar, Sana yakınlıkla derecemizi yücelt."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 110 kere "Yâ Aliyy"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Aliyy"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -904,14 +929,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 37 - El-Kebîr (الْكَبِيرُ)
+## 38 - el-Kebîr (اَلْكَبِيرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatındaki zorluklar aşamayacağın kadar devasa mı görünüyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْكَبِيرُ
-  * Okunuş: Yâ Kebîr
-  * Kısa Anlam: Eşi benzeri bulunmayan mutlak büyük; her şeyden üstün.
+  * Arapça Hat: اَلْكَبِيرُ
+  * Okunuş: Yâ el-Kebîr
+  * Kısa Anlam: Büyüklüğü sonsuz olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: 'Allahu Ekber' hakikatini kalbine nakşedip korkuları eritmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -920,7 +945,7 @@ Kelimelerin kifayetsiz kaldığı bir büyüklük düşün... Kebîr olan Allah,
 
 🤲 *"Yâ Kebîr! Kalbimizde Senin büyüklüğünden başka hiçbir şeyin büyümesine izin verme; korkularımızı yok et."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 232 kere "Yâ Kebîr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kebîr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -929,14 +954,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 38 - El-Hafîz (الْحَفِيظُ)
+## 39 - el-Hafîz (اَلْحَفِيظُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sevdiklerini ve geleceğini korumakta aciz mi kalıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَفِيظُ
-  * Okunuş: Yâ Hafîz
-  * Kısa Anlam: Bütün varlığı koruyup gözeten, hiçbir şeyi unutmayan ve zayi etmeyen.
+  * Arapça Hat: اَلْحَفِيظُ
+  * Okunuş: Yâ el-Hafîz
+  * Kısa Anlam: Her şeyi koruyucu olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kendini, sevdiklerini ve imanını ilahi koruma kalkanına emanet etmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -945,7 +970,7 @@ Gözünü kırpmadan seni ve sevdiklerini koruyan tek bir güç vardır: El-Haf�
 
 🤲 *"Yâ Hafîz! Bizi, ailemizi, sevdiklerimizi ve imanımızı her türlü kaza, bela ve şerden muhafaza eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 998 kere "Yâ Hafîz"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hafîz"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -954,14 +979,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 39 - El-Mukît (الْمُقِيتُ)
+## 40 - el-Mukît (اَلْمُقِيتُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hem bedenen hem ruhen tükenmiş, dermansız mı kaldın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُقِيتُ
-  * Okunuş: Yâ Mukît
-  * Kısa Anlam: Bütün canlıların gıdasını veren, bedenlere ve ruhlara kuvvet bahşeden.
+  * Arapça Hat: اَلْمُقِيتُ
+  * Okunuş: Yâ el-Mukît
+  * Kısa Anlam: Her yaratılmışın azığını, gıdasını veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Manevi açlıkları doyurmak, zayıf düşen ruh ve bedene can bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -970,7 +995,7 @@ Beden gıdaya muhtaç olduğu gibi, ruh da Rabbiyle irtibata muhtaçtır. Mukît
 
 🤲 *"Yâ Mukît! Ruhumuzu zikrinin nuruyla, bedenimizi helal rızıkla rızıklandır; bizi takatten düşürme."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 550 kere "Yâ Mukît"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mukît"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -979,14 +1004,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 40 - El-Hasîb (الْحَسِيبُ)
+## 41 - el-Hasîb (اَلْحَسِيبُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kimsenin desteği kalmadığında sana kimin yeteceğini biliyor musun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَسِيبُ
-  * Okunuş: Yâ Hasîb
-  * Kısa Anlam: Her kuluna kafi gelen, yapılan her amelin hesabını eksiksiz tutan.
+  * Arapça Hat: اَلْحَسِيبُ
+  * Okunuş: Yâ el-Hasîb
+  * Kısa Anlam: Herkese yeten, hesap gören.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: 'Hasbünallah' sırrına erip O'nun yeticiliğine sırtını dayamak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -995,7 +1020,7 @@ Herkes seni terk etse bile, Allah sana yeter. Hasîb olan Rabbine teslim olan bi
 
 🤲 *"Yâ Hasîb! Bütün işlerimizde bize Sen yetersin; hesabımızı kolay eyle, bizi mahcup kılma."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 80 kere "Yâ Hasîb"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hasîb"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1004,14 +1029,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 41 - El-Celîl (الْجَلِيلُ)
+## 42 - el-Celîl (اَلْجَلِيلُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyanın sahte şatafatı kalbini tatmin etmiyor mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْجَلِيلُ
-  * Okunuş: Yâ Celîl
-  * Kısa Anlam: Ululuk, azamet ve celalet sahibi, benzersiz yücelikte olan.
+  * Arapça Hat: اَلْجَلِيلُ
+  * Okunuş: Yâ el-Celîl
+  * Kısa Anlam: Celal ve azamet sahibi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun heybet ve azametine hayran olup kalpten saygı duymak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1020,7 +1045,7 @@ Bütün dünyanın debdebesi, El-Celîl olan Allah'ın celali karşısında bir 
 
 🤲 *"Yâ Celîl! Azametin karşısında kalbimizi huşu ile doldur, bizi heybetinle terbiye eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 73 kere "Yâ Celîl"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Celîl"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1029,14 +1054,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 42 - El-Kerîm (الْكَرِيمُ)
+## 43 - el-Kerîm (اَلْكَرِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İstemekten yoruldun ama kapısına gidecek kimsen kalmadı mı?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْكَرِيمُ
-  * Okunuş: Yâ Kerîm
-  * Kısa Anlam: Karşılıksız veren, cömertliği sınırsız olan, keremi tükenmeyen.
+  * Arapça Hat: اَلْكَرِيمُ
+  * Okunuş: Yâ el-Kerîm
+  * Kısa Anlam: Keremi, cömertliği bol olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun tükenmez cömertlik hazinelerinden lütuf ve ihsan dilemek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1045,7 +1070,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Kerîm! Lütfunla darlıklarımızı genişlet, cömertliğinle bizi ummadığımız hayırlara gark eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 270 kere "Yâ Kerîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kerîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1054,14 +1079,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 43 - Er-Rakîb (الرَّقِيبُ)
+## 44 - er-Rakîb (اَلرَّقِيبُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Yalnız kaldığında seni koruyan kimsenin olmadığını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّقِيبُ
-  * Okunuş: Yâ Rakîb
-  * Kısa Anlam: Bütün varlıkları her an gözetleyen, denetleyen ve koruyan.
+  * Arapça Hat: اَلرَّقِيبُ
+  * Okunuş: Yâ er-Rakîb
+  * Kısa Anlam: Her an gözeten ve denetleyen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Her an ilahi gözetim altında olduğunun bilinciyle ihsan şuuru kazanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1070,7 +1095,7 @@ Rakîb olan Allah seni bir an bile yalnız ve sahipsiz bırakmaz. Kalbinin atı�
 
 🤲 *"Yâ Rakîb! Bizi her daim Senin huzurunda olduğumuzun idrakiyle yaşat; gafletten muhafaza eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 312 kere "Yâ Rakîb"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Rakîb"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1079,39 +1104,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 44 - El-Mücîb (الْمُجِيبُ)
+## 45 - el-Mucîb (اَلْمُجِيبُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Dualarım kabul olmuyor diye ümidini mi yitirdin?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُجِيبُ
-  * Okunuş: Yâ Mücîb
-  * Kısa Anlam: Kendisine yalvaranların dualarına ve çağrılarına en güzel şekilde icabet eden.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Her duanın duyulduğuna ve en doğru vakitte cevaplanacağına inanmak için."
+  * Arapça Hat: اَلْمُجِيبُ
+  * Okunuş: Yâ el-Mucîb
+  * Kısa Anlam: Duaları kabul eden.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Allah kabul etmeyeceği duayı kulunun kalbine düşürmez ve ellerini semaya açtırmaz. Bazen tam istediğini verir, bazen daha hayırlısını verir, bazen de ahiretine saklar. Mücîb olan Rabbin seni asla cevapsız bırakmaz.
+Bazen kime sığınacağını bilemezsin. Ama el-Mucîb ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mücîb! Gönlümüzden geçen hayırlı dualarımıza icabet eyle; bizi kapından eli boş çevirme."*
+🤲 *"Yâ el-Mucîb! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 55 kere "Yâ Mücîb"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Mucîb"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#mucib #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmucîb #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 45 - El-Vâsi' (الْوَاسِعُ)
+## 46 - el-Vâsi (اَلْوَاسِعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünya sana dar geliyor, nefes alamıyor gibi misin?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَاسِعُ
-  * Okunuş: Yâ Vâsi'
-  * Kısa Anlam: İlmi, rahmeti, kudreti ve lütfu her şeyi kuşatacak kadar geniş olan.
+  * Arapça Hat: اَلْوَاسِعُ
+  * Okunuş: Yâ el-Vâsi
+  * Kısa Anlam: Rahmeti her şeyi kuşatan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İçindeki darlıklardan O'nun sınırsız genişlik ve ferahlığına sığınmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1120,7 +1145,7 @@ Senin sınırların var ama O'nun rahmetinin sınırı yok. El-Vâsi' olan Allah
 
 🤲 *"Yâ Vâsi'! Rahmetinle daralan göğsümüzü genişlet, rızkımızı bollaştır, ufkumuzu aydınlat."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 137 kere "Yâ Vâsi'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vâsi'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1129,14 +1154,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 46 - El-Hakîm (الْحَكِيمُ)
+## 47 - el-Hakîm (اَلْحَكِيمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Neden bunlar hep benim başıma geliyor diye mi soruyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَكِيمُ
-  * Okunuş: Yâ Hakîm
-  * Kısa Anlam: Her işi hikmetli, yerli yerinde ve kusursuz bir gaye ile yapan.
+  * Arapça Hat: اَلْحَكِيمُ
+  * Okunuş: Yâ el-Hakîm
+  * Kısa Anlam: Her şeyi hikmetle yapan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Başına gelen her şeyin ardındaki ilahi hikmeti anlayıp teslimiyet bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1145,7 +1170,7 @@ Allah hiçbir şeyi boşuna yaratmaz ve hiçbir imtihanı sebepsiz vermez. Hakî
 
 🤲 *"Yâ Hakîm! Başıma gelen her şeyin ardındaki hikmeti anlamayı ve rızana teslim olmayı nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 78 kere "Yâ Hakîm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hakîm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1154,14 +1179,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 47 - El-Vedûd (الْوَدُودُ)
+## 48 - el-Vedûd (اَلْوَدُودُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hiç sevilmediğini veya kimsenin seni hakiki sevmediğini mi düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَدُودُ
-  * Okunuş: Yâ Vedûd
-  * Kısa Anlam: Kullarını çok seven, sevilmeye en layık olan ve sevgiyi yaratan.
+  * Arapça Hat: اَلْوَدُودُ
+  * Okunuş: Yâ el-Vedûd
+  * Kısa Anlam: Kullarını çok seven, sevilen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbini ilahi sevgiyle doldurmak ve yaratılmışlara sevgiyle bakabilmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1170,7 +1195,7 @@ Seni var eden, kalbine sevme kabiliyetini koyan Vedûd olan Allah'tır. Fani sev
 
 🤲 *"Yâ Vedûd! Kalbimizi Kendi sevginle, Seni sevenlerin sevgisiyle ve bizi Sana yaklaştıracak amellerin sevgisiyle doldur."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 20 kere "Yâ Vedûd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vedûd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1179,14 +1204,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 48 - El-Mecîd (الْمَجِيدُ)
+## 49 - el-Mecîd (اَلْمَجِيدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Değersiz hissedip hayattaki anlamını mı kaybettin?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمَجِيدُ
-  * Okunuş: Yâ Mecîd
-  * Kısa Anlam: Şanı ve şerefi pek yüce, ihsanı ve keremi bol olan.
+  * Arapça Hat: اَلْمَجِيدُ
+  * Okunuş: Yâ el-Mecîd
+  * Kısa Anlam: Şeref ve yücelik sahibi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun şanının büyüklüğüne sığınıp manevi şeref ve izzet kazanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1195,7 +1220,7 @@ Sen sıradan bir varlık değilsin; şanı yüce olan El-Mecîd'in muhatap aldı
 
 🤲 *"Yâ Mecîd! Şanın yücedir, lütfun boldur; bizi Senin rızanla şereflenen ve yücelen kullarından eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 57 kere "Yâ Mecîd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mecîd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1204,14 +1229,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 49 - El-Bâis (الْبَاعِثُ)
+## 50 - el-Bâis (اَلْبَاعِثُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İçindeki umutların ve heyecanın tamamen öldüğünü mü sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَاعِثُ
-  * Okunuş: Yâ Bâis
-  * Kısa Anlam: Ölüleri dirilten, uyuyan ruhları uyandıran ve peygamberler gönderen.
+  * Arapça Hat: اَلْبَاعِثُ
+  * Okunuş: Yâ el-Bâis
+  * Kısa Anlam: Ölüleri dirilten.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kurumuş kalpleri ve tükenmiş umutları yeniden diriltmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1220,7 +1245,7 @@ Kışın ardından kupkuru toprağı binbir renkle dirilten Bâis olan Allah, se
 
 🤲 *"Yâ Bâis! Uyuşmuş kalplerimizi imanla dirilt, sönen umutlarımızı lütfunla yeniden alevlendir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 573 kere "Yâ Bâis"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bâis"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1229,14 +1254,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 50 - Eş-Şehîd (الشَّهِيدُ)
+## 51 - eş-Şehîd (اَلشَّهِيدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Gizli saklı çektiğin acılara kimsenin şahit olmadığını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الشَّهِيدُ
-  * Okunuş: Yâ Şehîd
-  * Kısa Anlam: Her yerde hazır ve nazır olan, her şeye bizzat şahitlik eden.
+  * Arapça Hat: اَلشَّهِيدُ
+  * Okunuş: Yâ eş-Şehîd
+  * Kısa Anlam: Her şeye şahit olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun şahitliğinin yeteceğini bilip sükut ve tevekkül bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1245,7 +1270,7 @@ Hiç kimsenin görmediği fedakarlıkların, karanlık gecelerde döktüğün g�
 
 🤲 *"Yâ Şehîd! Halimize, niyetimize ve sabrımıza şahit Sensin; bizi rızana şahit kıl, şaşırtma."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 319 kere "Yâ Şehîd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Şehîd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1254,14 +1279,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 51 - El-Hakk (الْحَقُّ)
+## 52 - el-Hakk (اَلْحَقُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Yalanların ve sahteliklerin dünyasında gerçeği mi arıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَقُّ
-  * Okunuş: Yâ Hakk
-  * Kısa Anlam: Varlığı hiç değişmeden duran, mutlak gerçek ve hakikatin kaynağı.
+  * Arapça Hat: اَلْحَقُّ
+  * Okunuş: Yâ el-Hakk
+  * Kısa Anlam: Varlığı gerçek olan, hiç değişmeyen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Bâtılın ve sahteliklerin sisini dağıtıp mutlak hakikate tutunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1270,7 +1295,7 @@ Dünyadaki her şey bir serap gibi kaybolup gidecektir; baki kalacak olan tek ş
 
 🤲 *"Yâ Hakk! Bize hakkı hak bilip ona uymayı, bâtılı bâtıl bilip ondan kaçınmayı nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 108 kere "Yâ Hakk"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hakk"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1279,14 +1304,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 52 - El-Vekîl (الْوَكِيلُ)
+## 53 - el-Vekîl (اَلْوَكِيلُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Her şeyi kontrol etmeye çalışmaktan yorulup tükendin mi?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَكِيلُ
-  * Okunuş: Yâ Vekîl
-  * Kısa Anlam: Kendisine güvenilip dayanılan, işleri en güzel sonuca ulaştıran.
+  * Arapça Hat: اَلْوَكِيلُ
+  * Okunuş: Yâ el-Vekîl
+  * Kısa Anlam: Kendisine güvenenlerin işlerini en iyi yapan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm kaygıları ve yükleri O'na havale edip hafiflemek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1295,7 +1320,7 @@ Kainatı idare eden kudret, senin küçük dünyanı da yönetmeye kadirdir. Sen
 
 🤲 *"Yâ Vekîl! İşlerimizi Sana emanet ettik; bizi nefsimizin eline bırakma, hakkımızda en hayırlısını var eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 66 kere "Yâ Vekîl"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vekîl"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1304,14 +1329,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 53 - El-Kaviyy (الْقَوِيُّ)
+## 54 - el-Kaviyy (اَلْقَوِيُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Zorluklar karşısında gücünün tükendiğini mi hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقَوِيُّ
-  * Okunuş: Yâ Kaviyy
-  * Kısa Anlam: Kudretine sınır olmayan, hiçbir zaman zaaf göstermeyen mutlak kuvvet sahibi.
+  * Arapça Hat: اَلْقَوِيُّ
+  * Okunuş: Yâ el-Kaviyy
+  * Kısa Anlam: Kudreti en üstün ve hiç azalmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Aczini itiraf edip O'nun sonsuz kudretinden güç ve kuvvet bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1320,7 +1345,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Kaviyy! Zayıflığımızı kudretinle gider, bize zorluklara karşı dayanma gücü ve irade kuvveti ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 116 kere "Yâ Kaviyy"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kaviyy"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1329,14 +1354,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 54 - El-Metîn (الْمَتِينُ)
+## 55 - el-Metîn (اَلْمَتِينُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatındaki belirsizlikler inancını ve direncini mi sarsıyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمَتِينُ
-  * Okunuş: Yâ Metîn
-  * Kısa Anlam: Son derece sağlam, sarsılmaz, hiçbir güç tarafından zayıflatılamayan.
+  * Arapça Hat: اَلْمَتِينُ
+  * Okunuş: Yâ el-Metîn
+  * Kısa Anlam: Çok sağlam, hiç sarsılmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Sarsılmaz bir sebat, metanet ve sağlam bir kalbe kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1345,7 +1370,7 @@ Dünya kaygan bir zemindir, adımlarımız her an kayabilir. Ancak Metîn olan A
 
 🤲 *"Yâ Metîn! İmanımızı sarsılmaz kıl, bizi imtihanlar karşısında metanetli ve dimdik eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 500 kere "Yâ Metîn"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Metîn"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1354,14 +1379,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 55 - El-Veliyy (الْوَلِيُّ)
+## 56 - el-Veliyy (اَلْوَلِيُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyada yapayalnız, kimsesiz ve sahipsiz mi kaldın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَلِيُّ
-  * Okunuş: Yâ Veliyy
-  * Kısa Anlam: İnananların gerçek dostu, koruyucusu ve yardımcısı olan.
+  * Arapça Hat: اَلْوَلِيُّ
+  * Okunuş: Yâ el-Veliyy
+  * Kısa Anlam: Müminlerin dostu ve yardımcısı.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun eşsiz dostluğunu kazanıp yalnızlık hissinden arınmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1370,7 +1395,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Veliyy! Sen bizim Mevlamız ve Dostumuzsun; bizi rızana layık gör, yalnızlığımızı dostluğunla gider."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 46 kere "Yâ Veliyy"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Veliyy"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1379,14 +1404,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 56 - El-Hamîd (الْحَمِيدُ)
+## 57 - el-Hamîd (اَلْحَمِيدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sürekli şikayet etmekten kalbinin karardığını mı hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَمِيدُ
-  * Okunuş: Yâ Hamîd
-  * Kısa Anlam: Her türlü övgüye, teşekküre ve hamde tek layık olan.
+  * Arapça Hat: اَلْحَمِيدُ
+  * Okunuş: Yâ el-Hamîd
+  * Kısa Anlam: Her türlü övgüye layık olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Şikayeti bırakıp hamd makamına yükselerek kalbi huzurla doldurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1395,7 +1420,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Hamîd! Dilimizi hamdinden, kalbimizi şükründen ayırma; verdiğin nimetleri rızan doğrultusunda kullanmayı lütfet."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 62 kere "Yâ Hamîd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hamîd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1404,14 +1429,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 57 - El-Muhsî (الْمُحْصِي)
+## 58 - el-Muhsî (اَلْمُحْصِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Attığın adımların ve çektiğin zahmetlerin kaybolacağını mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُحْصِي
-  * Okunuş: Yâ Muhsî
-  * Kısa Anlam: Bütün varlıkların sayısını ve zerresini tek tek bilen, hesaba katan.
+  * Arapça Hat: اَلْمُحْصِي
+  * Okunuş: Yâ el-Muhsî
+  * Kısa Anlam: Her şeyin sayısını bilen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Zerre kadar iyiliğin dahi kaybolmayacağı bilinciyle gayret etmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1420,7 +1445,7 @@ Kumsaldaki kum tanelerinden gökteki yıldızlara, kalbindeki hüzünlü çarpı
 
 🤲 *"Yâ Muhsî! Hesabımızı kolay kıl, günahlarımızı bağışla ve amellerimizi rahmetinle tart."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 148 kere "Yâ Muhsî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Muhsî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1429,39 +1454,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 58 - El-Mübdi' (الْمُبْدِئُ)
+## 59 - el-Mübdî (اَلْمُبْدِئُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Hayatında yeni ve temiz bir sayfa açmak mı istiyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُبْدِئُ
-  * Okunuş: Yâ Mübdi'
-  * Kısa Anlam: Maddesiz ve örneksiz olarak her şeyi ilk baştan var eden.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Çıkmaz sokaklardan yepyeni, aydınlık başlangıçlara adım atmak için."
+  * Arapça Hat: اَلْمُبْدِئُ
+  * Okunuş: Yâ el-Mübdî
+  * Kısa Anlam: Maddesiz ve örneksiz yaratan.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Hiçbir şey yokken kainatı başlatan Mübdi' olan Rabbin, senin hayatında da yepyeni ve tertemiz bir başlangıç yaratabilir. Geçmişe takılıp kalma; her an yeni bir yaratılışla tecelli eden Allah'a güven.
+Bazen kime sığınacağını bilemezsin. Ama el-Mübdî ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mübdi'! Hayatımıza hayırlı başlangıçlar nasip et, bizi karanlıktan aydınlığa çıkar."*
+🤲 *"Yâ el-Mübdî! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 56 kere "Yâ Mübdi'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Mübdî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#mubdi #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmübdî #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 59 - El-Mu'îd (الْمُعِيدُ)
+## 60 - el-Muîd (اَلْمُعِيدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Kaybettiğin huzuru ve güzellikleri bir daha bulamayacağını mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُعِيدُ
-  * Okunuş: Yâ Mu'îd
-  * Kısa Anlam: Varlıkları yok ettikten sonra tekrar dirilten, eski haline döndüren.
+  * Arapça Hat: اَلْمُعِيدُ
+  * Okunuş: Yâ el-Muîd
+  * Kısa Anlam: Yaratılmışları yok ettikten sonra tekrar yaratan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Yitirilen huzur, sağlık ve güzellikleri O'nun lütfuyla geri kazanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1470,7 +1495,7 @@ Gidenlerin ardından umutsuzluğa kapılma. Mu'îd olan Allah, kuru toprağa bah
 
 🤲 *"Yâ Mu'îd! Kaybettiğimiz manevi huzurumuzu bize iade et, kalbimizi ilk günkü saflığına döndür."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 124 kere "Yâ Mu'îd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mu'îd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1479,14 +1504,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 60 - El-Muhyî (الْمُحْيِي)
+## 61 - el-Muhyî (اَلْمُحْيِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Ruhunun kuruduğunu ve kalbinin taşlaştığını mı hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُحْيِي
-  * Okunuş: Yâ Muhyî
-  * Kısa Anlam: Hayat veren, can bağışlayan, ölü bedenleri ve kalpleri dirilten.
+  * Arapça Hat: اَلْمُحْيِي
+  * Okunuş: Yâ el-Muhyî
+  * Kısa Anlam: Can veren, dirilten.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Ölmüş hisleri, sönmüş hevesleri ilahi aşk ve hayat suyuyla diriltmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1495,7 +1520,7 @@ Kupkuru bir tohumu yaran ve ona yemyeşil bir hayat veren Muhyî olan Rabbin, se
 
 🤲 *"Yâ Muhyî! Gafletle ölmüş kalplerimizi zikrinin nuruyla dirilt; bize ebedi hayat saadetini nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 68 kere "Yâ Muhyî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Muhyî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1504,14 +1529,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 61 - El-Mümît (الْمُمِيتُ)
+## 62 - el-Mümît (اَلْمُمِيتُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Seni günaha sürükleyen o kötü huylarından kurtulamıyor musun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُمِيتُ
-  * Okunuş: Yâ Mümît
-  * Kısa Anlam: Eceli geldiğinde canları alan, ölümü yaratan.
+  * Arapça Hat: اَلْمُمِيتُ
+  * Okunuş: Yâ el-Mümît
+  * Kısa Anlam: Eceli gelenlerin canını alan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Nefsin kötü arzularını öldürüp ruhu ebedi hayata hazırlamak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1520,7 +1545,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Mümît! İçimizdeki kötü alışkanlıkları ve nefsin vesveselerini yok et; son nefesimizi iman ile nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 490 kere "Yâ Mümît"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mümît"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1529,14 +1554,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 62 - El-Hayy (الْحَيُّ)
+## 63 - el-Hayy (اَلْحَيُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Fanilere bağlanıp her defasında hayal kırıklığı mı yaşıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْحَيُّ
-  * Okunuş: Yâ Hayy
-  * Kısa Anlam: Ezeli ve ebedi hayat sahibi, asla ölmeyen, daima diri olan.
+  * Arapça Hat: اَلْحَيُّ
+  * Okunuş: Yâ el-Hayy
+  * Kısa Anlam: Diri, tam ve mükemmel manada hayat sahibi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Ölümlü dünyadan sıyrılıp ebedi ve diri olan Rabbe bağlanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1545,7 +1570,7 @@ Her canlı ölümü tadacaktır; güvendiğin bütün faniler bir gün seni terk
 
 🤲 *"Yâ Hayy! Bize diri bir iman, uyanık bir şuur ve razı olacağın bereketli bir ömür lütfeyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 18 kere "Yâ Hayy"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hayy"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1554,14 +1579,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 63 - El-Kayyûm (الْقَيُّومُ)
+## 64 - el-Kayyûm (اَلْقَيُّومُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatındaki dengelerin altüst olduğunu ve yıkıldığını mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقَيُّومُ
-  * Okunuş: Yâ Kayyûm
-  * Kısa Anlam: Kendi kendine var olan, bütün kâinatı ayakta tutan ve yöneten.
+  * Arapça Hat: اَلْقَيُّومُ
+  * Okunuş: Yâ el-Kayyûm
+  * Kısa Anlam: Gökleri, yeri ve her şeyi tutan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Dağılan hayatını O'nun nizamıyla yeniden toparlayıp ayakta durmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1570,7 +1595,7 @@ Yıldızları gökte direksiz tutan, atomlardan galaksilere her şeyi ayakta tut
 
 🤲 *"Yâ Kayyûm! Dağılmış işlerimizi toparla, bizi nefsimize bırakma, rızan üzere dimdik ayakta tut."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 156 kere "Yâ Kayyûm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kayyûm"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1579,14 +1604,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 64 - El-Vâcid (الْوَاجِدُ)
+## 65 - el-Vâcid (اَلْوَاجِدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Eksiklik ve yetersizlik hissi içinde kaybolmuş gibi misin?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَاجِدُ
-  * Okunuş: Yâ Vâcid
-  * Kısa Anlam: Hiçbir şeye muhtaç olmayan, dilediği her şeyi dilediği an bulan ve var eden.
+  * Arapça Hat: اَلْوَاجِدُ
+  * Okunuş: Yâ el-Vâcid
+  * Kısa Anlam: İstediğini istediği anda bulan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalpteki manevi boşlukları O'nun varlığıyla doldurup doyum bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1595,7 +1620,7 @@ Allah'ı bulan neyi kaybetmiştir ki? Allah'ı kaybeden ise neyi bulmuştur? Vâ
 
 🤲 *"Yâ Vâcid! Kalbimize Seni bulmanın huzurunu ver; bizi dünyalık kayıplarla değil, manevi kazançlarla zenginleştir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 14 kere "Yâ Vâcid"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vâcid"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1604,14 +1629,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 65 - El-Mâcid (الْمَاجِدُ)
+## 66 - el-Mâcid (اَلْمَاجِدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Lütuf ve ihsan kapılarının sana kapandığını mı düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمَاجِدُ
-  * Okunuş: Yâ Mâcid
-  * Kısa Anlam: Şanı ve keremi pek geniş, ihsanı bol ve cömertliği eşsiz olan.
+  * Arapça Hat: اَلْمَاجِدُ
+  * Okunuş: Yâ el-Mâcid
+  * Kısa Anlam: Kadri ve şanı büyük, kerem ve cömertliği bol.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalp aydınlığına ve O'nun sonsuz ikramlarına mazhar olmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1620,7 +1645,7 @@ Mâcid olan Allah'ın hazineleri cömertlikle dolup taşar. Kuluna ikram etmekte
 
 🤲 *"Yâ Mâcid! Şanın ve keremin hürmetine bize hayır kapılarını aç, kalbimizi manevi nurlarla aydınlat."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 48 kere "Yâ Mâcid"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mâcid"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1629,14 +1654,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 66 - El-Vâhid (الْوَاحِدُ)
+## 67 - el-Vâhid (اَلْوَاحِدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Zihnindeki binbir parça dert seni paramparça mı etti?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَاحِدُ
-  * Okunuş: Yâ Vâhid
-  * Kısa Anlam: Zatında, sıfatlarında ve fiillerinde tek olan, ortağı bulunmayan.
+  * Arapça Hat: اَلْوَاحِدُ
+  * Okunuş: Yâ el-Vâhid
+  * Kısa Anlam: Tek, benzeri olmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Dağınık düşüncelerden kurtulup tevhidin birleştirici huzurunda toparlanmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1645,7 +1670,7 @@ Kalp tek bir Rabbe kulluk etmek için yaratılmıştır; fani dünyalıklara bö
 
 🤲 *"Yâ Vâhid! Kalbimizi yalnız Sana bağla, bizi çokluk içinde kaybolmaktan kurtar ve tevhid nuruyla dirilt."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 19 kere "Yâ Vâhid"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vâhid"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1654,39 +1679,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 67 - El-Ehad (الأَحَدُ)
-
-### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Kimsenin yerini dolduramadığı o derin yalnızlığı mı hissediyorsun?"
-* **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الأَحَدُ
-  * Okunuş: Yâ Ehad
-  * Kısa Anlam: Asla bölünmeyen, benzeri ve dengi olmayan tek ve benzersiz.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Yalnızca O'na sığınarak kalpteki tüm sahte ilahları temizlemek için."
-* **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
-
-### 2. Instagram Açıklama Metni (Caption)
-"De ki: O Allah birdir." İhlas suresinin kalbi olan Ehad ismi, insanın içindeki bütün sahte dayanakları yıkar. Yalnız kaldığında hatırla: Ehad olan Rabbin sana her şeyden daha yakındır ve O sana yeter.
-
-🤲 *"Yâ Ehad! Bizi şirkten, riyadan ve samimiyetsizlikten koru; kalbimizi saf tevhid ile süsle."*
-
-*Ebced / Tavsiye Edilen Zikir Adedi:* 13 kere "Yâ Ehad"
-
-Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
-
-### 3. Hashtag Seti
-#ehad #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
-
----
-
-## 68 - Es-Samed (الصَّمَدُ)
+## 68 - es-Samed (اَلصَّمَدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Herkesin senden bir şey beklediği bu dünyada nereye sığınacaksın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الصَّمَدُ
-  * Okunuş: Yâ Samed
-  * Kısa Anlam: Hiçbir şeye muhtaç olmayan, her varlığın her an muhtaç olduğu tek sığınak.
+  * Arapça Hat: اَلصَّمَدُ
+  * Okunuş: Yâ es-Samed
+  * Kısa Anlam: Hiçbir şeye muhtaç olmayan, her şeyin kendisine muhtaç olduğu.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İhtiyaçlarını fani kullara değil, tek dayanak olan Samed'e sunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1695,7 +1695,7 @@ Bütün kâinat O'na muhtaç, O ise hiçbir şeye muhtaç değildir. Muhtaç ola
 
 🤲 *"Yâ Samed! Bizi Kendinden başkasına muhtaç etme; aczimizi ve fakirliğimizi rahmetinle gider."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 134 kere "Yâ Samed"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Samed"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1704,14 +1704,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 69 - El-Kâdir (الْقَادِرُ)
+## 69 - el-Kâdir (اَلْقَادِرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Artık bu durumun düzelmesi imkansız mı diyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْقَادِرُ
-  * Okunuş: Yâ Kâdir
-  * Kısa Anlam: Dilediğini dilediği gibi yapmaya gücü yeten, kudret sahibi.
+  * Arapça Hat: اَلْقَادِرُ
+  * Okunuş: Yâ el-Kâdir
+  * Kısa Anlam: Her şeye gücü yeten.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İmkansız görünen tüm dertlerin O'nun kudretiyle kolaylaşması için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1720,7 +1720,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Kâdir! Gücümüzün tükendiği yerde kudretinle imdadımıza yetiş; imkansız gördüğümüz hayırları nasip eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 305 kere "Yâ Kâdir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Kâdir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1729,14 +1729,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 70 - El-Muktedir (الْمُقْتَدِرُ)
+## 70 - el-Muktedir (اَلْمُقْتَدِرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatındaki kontrolü tamamen kaybettiğini mi düşünüyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُقْتَدِرُ
-  * Okunuş: Yâ Muktedir
-  * Kısa Anlam: Bütün varlıklar üzerinde sınırsız tasarruf ve mutlak hakimiyet sahibi.
+  * Arapça Hat: اَلْمُقْتَدِرُ
+  * Okunuş: Yâ el-Muktedir
+  * Kısa Anlam: Kudretiyle her şeye galip gelen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kontrol saplantısından kurtulup O'nun mutlak gücüne teslim olmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1745,7 +1745,7 @@ Sen ipleri elinde tutamazsın ama her şeyin dizgini Muktedir olan Allah'ın eli
 
 🤲 *"Yâ Muktedir! Kudretin karşısında boyun eğiyoruz; zayıflığımızı güçlendir, bizi rızan dairesinde muvaffak kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 744 kere "Yâ Muktedir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Muktedir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1754,14 +1754,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 71 - El-Mukaddim (الْمُقَدِّمُ)
+## 71 - el-Mukaddim (اَلْمُقَدِّمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatta hep geride kaldığını hissedip üzülüyor musun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُقَدِّمُ
-  * Okunuş: Yâ Mukaddim
-  * Kısa Anlam: Dilediğini öne geçiren, lütfuyla derecesini yükselten.
+  * Arapça Hat: اَلْمُقَدِّمُ
+  * Okunuş: Yâ el-Mukaddim
+  * Kısa Anlam: İstediğini öne alan, ileri geçiren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Hayırda, ilimde ve takvada öncülerden olmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1770,7 +1770,7 @@ Allah kimi öne geçirirse onu kimse geride bırakamaz; kimi de geride bırakır
 
 🤲 *"Yâ Mukaddim! Bizi hayırda, taatte ve güzel ahlakta öne geçenlerden eyle; tembellikten muhafaza buyur."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 184 kere "Yâ Mukaddim"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mukaddim"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1779,14 +1779,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 72 - El-Muahhir (الْمُؤَخِّرُ)
+## 72 - el-Muahhir (اَلْمُؤَخِّرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İstediklerin neden bir türlü gerçekleşmiyor diye isyan mı ediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُؤَخِّرُ
-  * Okunuş: Yâ Muahhir
-  * Kısa Anlam: Hikmeti gereği dilediğini erteleyen, geriye bırakan.
+  * Arapça Hat: اَلْمُؤَخِّرُ
+  * Okunuş: Yâ el-Muahhir
+  * Kısa Anlam: İstediğini geriye bırakan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Gecikmelerin ardındaki ilahi hayra güvenip sabırla bekleyebilmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1795,7 +1795,7 @@ Geciken şeylerin arkasında mutlaka korunman gereken bir şer ya da hazırlanma
 
 🤲 *"Yâ Muahhir! Hayatımızdaki tehirlerin hikmetini kalbimize bildir, bizi sabırsızlıktan ve sitemden koru."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 847 kere "Yâ Muahhir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Muahhir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1804,14 +1804,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 73 - El-Evvel (الأَوَّلُ)
+## 73 - el-Evvel (اَلْاَوَّلُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Her şeye nereden başlayacağını bilemeyip kararsız mı kaldın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الأَوَّلُ
-  * Okunuş: Yâ Evvel
-  * Kısa Anlam: Varlığının başlangıcı olmayan, her şeyden önce var olan.
+  * Arapça Hat: اَلْاَوَّلُ
+  * Okunuş: Yâ el-Evvel
+  * Kısa Anlam: Başlangıcı olmayan, ilk.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Her işe O'nun adıyla başlayıp niyetleri en baştan O'na adamak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1820,7 +1820,7 @@ Hiçbir şey yokken O vardı; her başlangıcın ilk sebebi O'dur. Hayatının, 
 
 🤲 *"Yâ Evvel! Başladığımız her hayırlı işte bize muvaffakiyet ver; kalbimizi ilk baştan rızanla sabit kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 37 kere "Yâ Evvel"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Evvel"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1829,14 +1829,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 74 - El-Âhir (الآخِرُ)
+## 74 - el-Âhir (اَلْاٰخِرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Her şey bitip tükendiğinde geriye ne kalacak sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الآخِرُ
-  * Okunuş: Yâ Âhir
-  * Kısa Anlam: Varlığının sonu olmayan, her şey yok olduktan sonra baki kalan.
+  * Arapça Hat: اَلْاٰخِرُ
+  * Okunuş: Yâ el-Âhir
+  * Kısa Anlam: Sonsuz olan, son.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Fanilerin ayrılığından acı çekmek yerine son durağın sahibine yönelmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1845,7 +1845,7 @@ Bütün dünyalıklar, makamlar, güzellikler bir gün yok olup gidecek. Geriye 
 
 🤲 *"Yâ Âhir! Ömrümüzün sonunu, başlangıcından hayırlı eyle; son nefesimizi iman ve hüsn-i hatime ile tamamla."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 801 kere "Yâ Âhir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Âhir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1854,14 +1854,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 75 - Ez-Zâhir (الظَّاهِرُ)
+## 75 - ez-Zâhir (اَلظَّاهِرُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Karanlıkta kaldığında rehber olacak bir işaret mi arıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الظَّاهِرُ
-  * Okunuş: Yâ Zâhir
-  * Kısa Anlam: Yarattığı delillerle varlığı aşikar, açık ve her yerde görünen.
+  * Arapça Hat: اَلظَّاهِرُ
+  * Okunuş: Yâ ez-Zâhir
+  * Kısa Anlam: Varlığı açıkça bilinen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kâinattaki ve hayatındaki ilahi mucizeleri görebilecek basirete kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1870,7 +1870,7 @@ Açan bir çiçekte, yağan yağmurda, atan kalbinde O'nun varlığının apaç�
 
 🤲 *"Yâ Zâhir! Varlığının delillerini idrak edecek basiret ver; kalbimizi marifetinin nuruyla parlat."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1106 kere "Yâ Zâhir"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Zâhir"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1879,14 +1879,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 76 - El-Bâtın (الْبَاطِنُ)
+## 76 - el-Bâtın (اَلْبَاطِنُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Görünmeyen sırlardan ve bilinmezlikten mi ürküyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَاطِنُ
-  * Okunuş: Yâ Bâtın
-  * Kısa Anlam: Akılların idrakinden gizli olan, her şeyin iç yüzünü ve sırrını bilen.
+  * Arapça Hat: اَلْبَاطِنُ
+  * Okunuş: Yâ el-Bâtın
+  * Kısa Anlam: Gizli, aklın idrak edemeyeceği.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Olayların gizli sırlarına teslim olup kalbi huzurla doldurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1895,7 +1895,7 @@ Gözler O'nu göremez ama O bütün gözleri görür. Bâtın olan Allah, kalbin
 
 🤲 *"Yâ Bâtın! Kalbimizin gizli kusurlarını ıslah eyle; bizi batınımızı nurlu, zahirimizi istikametli kılanlardan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 62 kere "Yâ Bâtın"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bâtın"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1904,14 +1904,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 77 - El-Vâlî (الْوَالِي)
+## 77 - el-Vâlî (اَلْوَالِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyadaki kaos ve düzensizlik kalbini çok mu yoruyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَالِي
-  * Okunuş: Yâ Vâlî
-  * Kısa Anlam: Bütün kâinatı hikmetle yöneten, her şeyin tek idarecisi.
+  * Arapça Hat: اَلْوَالِي
+  * Okunuş: Yâ el-Vâlî
+  * Kısa Anlam: Kainatı idare eden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Hayatının idaresini O'nun adil ve şefkatli yönetimine bırakmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1920,7 +1920,7 @@ Kainat sahipsiz ve başıboş değildir; El-Vâlî olan Allah her an iş başın
 
 🤲 *"Yâ Vâlî! Hayatımızın idaresini en güzel şekilde tanzim eyle; bizi şaşkınlık ve gaflet içinde bırakma."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 47 kere "Yâ Vâlî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vâlî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1929,14 +1929,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 78 - El-Müteâlî (الْمُتَعَالِي)
+## 78 - el-Müteâlî (اَلْمُتَعَالِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İnsanların nankörlüğü ve basit hesapları canını mı sıkıyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُتَعَالِي
-  * Okunuş: Yâ Müteâlî
-  * Kısa Anlam: İzzet, şan ve azamette her türlü noksanlıktan sonsuz derecede yüce olan.
+  * Arapça Hat: اَلْمُتَعَالِي
+  * Okunuş: Yâ el-Müteâlî
+  * Kısa Anlam: Yüceliğinin sınırı olmayan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Basit dünyalık çekişmelerin üzerinden sıyrılıp manevi yüceliğe ermek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1945,7 +1945,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Müteâlî! Sonsuz yüceliğin hakkı için bizi fani dedikodulardan ve bayağı arzulardan muhafaza eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 541 kere "Yâ Müteâlî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Müteâlî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1954,14 +1954,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 79 - El-Berr (الْبَرُّ)
+## 79 - el-Berr (اَلْبَرُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatında karşılıksız bir iyilik ve vefa bulamadın mı?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَرُّ
-  * Okunuş: Yâ Berr
-  * Kısa Anlam: İyilik ve ihsanı bol olan, kullarına karşı sonsuz şefkat besleyen.
+  * Arapça Hat: اَلْبَرُّ
+  * Okunuş: Yâ el-Berr
+  * Kısa Anlam: İyilik ve ihsanı sonsuz.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: O'nun tükenmez iyilik deryasından nasiplenip kalbini cömert kılmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1970,7 +1970,7 @@ Kulların iyiliği menfaate bağlı olabilir ama El-Berr olan Rabbin iyiliği so
 
 🤲 *"Yâ Berr! İhsanınla bizi sevindir, kalbimize iyilik tohumları ek ve bizi iyilik yapanlardan eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 202 kere "Yâ Berr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Berr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -1979,14 +1979,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 80 - Et-Tevvâb (التَّوَّابُ)
+## 80 - et-Tevvâb (اَلتَّوَّابُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Bin kere tövbeni bozsan da yine dönecek bir kapın var mı sanıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: التَّوَّابُ
-  * Okunuş: Yâ Tevvâb
-  * Kısa Anlam: Tövbe edenlerin tövbesini daima kabul eden, affı sonsuz olan.
+  * Arapça Hat: اَلتَّوَّابُ
+  * Okunuş: Yâ et-Tevvâb
+  * Kısa Anlam: Tövbeleri kabul eden.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Utanıp geri çekilmek yerine O'nun bağışlayıcı kucağına yeniden sığınmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -1995,7 +1995,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Tevvâb! Teyit ettiğimiz pişmanlıklarımızı kabul buyur; bizi tövbesinde sebat edenlerden kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 409 kere "Yâ Tevvâb"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Tevvâb"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2004,64 +2004,64 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 81 - El-Müntakım (الْمُنْتَقِمُ)
+## 81 - el-Müntakim (اَلْمُنْتَقِمُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Sana yapılan zulümler cezasız mı kalacak sanıyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُنْتَقِمُ
-  * Okunuş: Yâ Müntakım
-  * Kısa Anlam: Zalimlerden ve zorbalardan mazlumun intikamını hakkıyla alan.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Öfkeyi ve intikam arzusunu bırakıp adaleti gerçek sahibine havale etmek için."
+  * Arapça Hat: اَلْمُنْتَقِمُ
+  * Okunuş: Yâ el-Müntakim
+  * Kısa Anlam: Suçluları adaletli bir şekilde cezalandıran.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Kalbinin kırıklarını kendi öfkenle sarmaya çalışma. El-Müntakım olan Allah, mazlumun hakkını zalimde bırakmaz. Sen davanı Allah'a havale et; O öyle bir adaletle hükmeder ki hiçbir hesap açıkta kalmaz.
+Bazen kime sığınacağını bilemezsin. Ama el-Müntakim ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Müntakım! Mazlumların ahını yerde bırakma; bizi intikam peşinde heba olmaktan kurtarıp adaletine teslim eyle."*
+🤲 *"Yâ el-Müntakim! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 630 kere "Yâ Müntakım"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Müntakim"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#muntakim #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmüntakim #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 82 - El-Afüvv (الْعَفُوُّ)
+## 82 - el-Afuvv (اَلْعَفُوُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Kendi hatalarını bir türlü affedemiyor, vicdan azabıyla mı yaşıyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْعَفُوُّ
-  * Okunuş: Yâ Afüvv
-  * Kısa Anlam: Günahları sadece bağışlamakla kalmayıp tamamen silip yok eden.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Günahların izini bile silen ilahi affa sığınıp ruhu hafifletmek için."
+  * Arapça Hat: اَلْعَفُوُّ
+  * Okunuş: Yâ el-Afuvv
+  * Kısa Anlam: Çok affeden, günahları silen.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Afüvv ismi, günahı örtmekten de öte, onu sanki hiç işlenmemiş gibi amel defterinden silip yok etmek demektir. Allah affetmeyi çok sever; O'ndan af dilemekten asla vazgeçme, kalbini suçluluk yükünden arındır.
+Bazen kime sığınacağını bilemezsin. Ama el-Afuvv ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Allahümme inneke afüvvün tuhibbü'l-afve fa'fü annâ (Allah'ım! Sen affedicisin, affı seversin, bizi affeyle)."*
+🤲 *"Yâ el-Afuvv! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 156 kere "Yâ Afüvv"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Afuvv"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#afuvv #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elafuvv #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 83 - Er-Raûf (الرَّؤُوفُ)
+## 83 - er-Raûf (اَلرَّؤُوفُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dünyanın acımasızlığı karşısında derin bir şefkate mi muhtaçsın?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّؤُوفُ
-  * Okunuş: Yâ Raûf
-  * Kısa Anlam: Son derece merhametli, çok şefkatli, kullarına kıyamayan.
+  * Arapça Hat: اَلرَّؤُوفُ
+  * Okunuş: Yâ er-Raûf
+  * Kısa Anlam: Çok şefkatli, çok merhametli.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İlahi şefkatin kanatları altına sığınıp teselli bulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2070,7 +2070,7 @@ Raûf, merhametin en zarif ve en hassas derecesidir. Kulunun bir damla gözyaş�
 
 🤲 *"Yâ Raûf! Bize şefkatinle muamele eyle; kalbimize merhamet, ruhumuza sükun ve emniyet ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 287 kere "Yâ Raûf"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Raûf"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2079,64 +2079,64 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 84 - Mâlikü'l-Mülk (مَالِكُ الْمُلْكِ)
+## 84 - Mâlikü (مَالِكُ الْمُلْكِ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Kayıpların ardından her şeyini kaybettiğini mi düşünüyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
   * Arapça Hat: مَالِكُ الْمُلْكِ
-  * Okunuş: Yâ Mâlike'l-Mülk
-  * Kısa Anlam: Bütün mülkün ebedi ve gerçek sahibi, dilediğine veren, dilediğinden alan.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Elindekilerin emanet olduğunu bilip gerçek sahibine teslimiyet göstermek için."
+  * Okunuş: Yâ Mâlikü
+  * Kısa Anlam: Mülkün gerçek sahibi.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Hiçbir şey senin değildi ki kaybetmiş olasın. Her şey Mâlikü'l-Mülk olan Allah'ındır. Veren de O, alan da O... Emanetin sahibine teslim olduğunu bilmek, dünyevi kayıpların acısını hafifleten en büyük merhemdir.
+Bazen kime sığınacağını bilemezsin. Ama Mâlikü ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mâlike'l-Mülk! Bütün mülk Senindir; bize verdiklerinle imtihanımızı kolaylaştır, kalbimizi rızana bağla."*
+🤲 *"Yâ Mâlikü! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 212 kere "Yâ Mâlike'l-Mülk"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mâlikü"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#malikulmulk #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#mâlikü #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 85 - Zü'l-Celâli ve'l-İkrâm (ذُو الْجَلاَلِ وَالإِكْرَامِ)
+## 85 - Zül-celâli ve (ذُوالْجَلَالِ وَالْاِكْرَامِ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Hem azameti hem de sonsuz cömertliği bir arada mı arıyorsun?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: ذُو الْجَلاَلِ وَالإِكْرَامِ
-  * Okunuş: Yâ Ze'l-Celâli ve'l-İkrâm
-  * Kısa Anlam: Hem büyüklük ve celal, hem de sonsuz lütuf ve ikram sahibi olan.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Peygamberimizin 'bunu dualarınızda çokça zikredin' müjdesine nail olmak için."
+  * Arapça Hat: ذُوالْجَلَالِ وَالْاِكْرَامِ
+  * Okunuş: Yâ Zül-celâli ve
+  * Kısa Anlam: Büyüklük ve ikram sahibi.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Efendimiz (s.a.v) şöyle buyurur: "Yâ Ze'l-Celâli ve'l-İkrâm zikrine sımsıkı sarılın." O hem heybetiyle titreten Celal sahibi, hem de lütuflarıyla sevindiren İkram sahibidir. Bu isme sığınan hiçbir duanın kapısı kapalı kalmaz.
+Bazen kime sığınacağını bilemezsin. Ama Zül-celâli ve ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Ze'l-Celâli ve'l-İkrâm! Celalinden korkup ikramına sığınıyoruz; dualarımızı lütfunla kabul buyur."*
+🤲 *"Yâ Zül-celâli ve! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1100 kere "Yâ Ze'l-Celâli ve'l-İkrâm"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Zül-celâli ve"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#zulcelalivelikram #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#zülcelâlive #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 86 - El-Muksit (الْمُقْسِطُ)
+## 86 - el-Muksit (اَلْمُقْسِطُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatındaki adaletsizlikler ve dengesizlikler seni isyana mı sürüklüyor?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُقْسِطُ
-  * Okunuş: Yâ Muksit
-  * Kısa Anlam: Bütün işlerini uyum, denge ve kusursuz bir adaletle yapan.
+  * Arapça Hat: اَلْمُقْسِطُ
+  * Okunuş: Yâ el-Muksit
+  * Kısa Anlam: Adaletli davranan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Hayatındaki dengeleri kurmak ve ilahi adaletin huzurunu hissetmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2145,7 +2145,7 @@ Muksit olan Allah, mazlumun hakkını zalimden alır ve hiçbir şeyi dengesiz b
 
 🤲 *"Yâ Muksit! İşlerimize denge, ahlakımıza itidal ver; hakkı hak sahibine teslim edenlerden eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 209 kere "Yâ Muksit"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Muksit"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2154,14 +2154,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 87 - El-Câmi' (الْجَامِعُ)
+## 87 - el-Câmi (اَلْجَامِعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Dağılmış bir hayatı ve ayrılmış kalpleri kim bir araya getirebilir?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْجَامِعُ
-  * Okunuş: Yâ Câmi'
-  * Kısa Anlam: Birbirine zıt şeyleri birleştiren, dilediğini dilediği zaman bir araya toplayan.
+  * Arapça Hat: اَلْجَامِعُ
+  * Okunuş: Yâ el-Câmi
+  * Kısa Anlam: İstediğini istediği zaman bir araya getiren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Dağılmış hayalleri, parçalanmış yuvaları ve sevdikleri hayırla buluşturmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2170,7 +2170,7 @@ Dağılmış bulutları bir araya getirip rahmet yağdıran Câmi' olan Allah, s
 
 🤲 *"Yâ Câmi'! Dağılmış gönlümüzü toparla; bizi sevdiklerimizle, hayırlarla ve cennetinde rızanla bir araya getir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 114 kere "Yâ Câmi'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Câmi'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2179,14 +2179,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 88 - El-Ganiyy (الْغَنِيُّ)
+## 88 - el-Ganiyy (اَلْغَنِيُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Maddi ve manevi borçların altında ezildiğini mi hissediyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْغَنِيُّ
-  * Okunuş: Yâ Ganiyy
-  * Kısa Anlam: Hiçbir şeye muhtaç olmayan, sonsuz servet ve zenginlik sahibi.
+  * Arapça Hat: اَلْغَنِيُّ
+  * Okunuş: Yâ el-Ganiyy
+  * Kısa Anlam: Hiçbir şeye muhtaç olmayan, en zengin.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Büyük servet, geniş rızık ve gönül zenginliğine kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2195,7 +2195,7 @@ Bütün dünyanın hazineleri O'nun mülkünün yanında bir damla bile değildi
 
 🤲 *"Yâ Ganiyy! Bizi kimseye muhtaç etmeyecek bir helal rızık ve kanaat zenginliği ile ödüllendir."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1060 kere "Yâ Ganiyy"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Ganiyy"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2204,39 +2204,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 89 - El-Mugnî (الْمُغْنِي)
+## 89 - el-Muğnî (اَلْمُغْنِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Yokluk ve çaresizlik içinde kıvranmaktan yoruldun mu?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمُغْنِي
-  * Okunuş: Yâ Mugnî
-  * Kısa Anlam: Dilediğini zengin kılan, ihtiyaçlarını giderip kimseye muhtaç etmeyen.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Maddi ve manevi darlıklardan kurtulup refah ve huzura ermek için."
+  * Arapça Hat: اَلْمُغْنِي
+  * Okunuş: Yâ el-Muğnî
+  * Kısa Anlam: İstediğini zengin eden.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Sadece cepleri değil, kalpleri de zenginleştiren Mugnî olan Rabbin vardır. O bir kulunu zengin kılmak isterse hiçbir engel buna mani olamaz. Sen çalış, tevekkül et ve O'nun cömertliğine güven.
+Bazen kime sığınacağını bilemezsin. Ama el-Muğnî ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Mugnî! Bizi helalinden zengin kıl, muhtaçlığımızı gider, kalbimize hakiki zenginlik ver."*
+🤲 *"Yâ el-Muğnî! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1100 kere "Yâ Mugnî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ el-Muğnî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#mugni #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#elmuğnî #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 90 - El-Mâni' (الْمَانِعُ)
+## 90 - el-Mâni (اَلْمَانِعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Çok istediğin o şeyin neden gerçekleşmediğini anlayamıyor musun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْمَانِعُ
-  * Okunuş: Yâ Mâni'
-  * Kısa Anlam: Hikmetiyle dilediği şeye engel olan, kötülüklerin önüne set çeken.
+  * Arapça Hat: اَلْمَانِعُ
+  * Okunuş: Yâ el-Mâni
+  * Kısa Anlam: Dilemediği şeyin gerçekleşmesine engel olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Engellenen isteklerin ardındaki korumayı anlayıp şerden korunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2245,7 +2245,7 @@ Bazen Allah'ın vermemesi bir mahrumiyet değil, seni görünmeyen bir uçurumda
 
 🤲 *"Yâ Mâni'! Bize zarar verecek her şeye engel ol; şer kapılarını kapatıp hayır kapılarını arala."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 161 kere "Yâ Mâni'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Mâni'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2254,14 +2254,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 91 - Ed-Dârr (الضَّارُّ)
+## 91 - ed-Dârr (اَلضَّارُّ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "İnsanların sana zarar verebileceğini düşünüp korku içinde mi yaşıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الضَّارُّ
-  * Okunuş: Yâ Dârr
-  * Kısa Anlam: Hikmeti gereği imtihan için zarar ve elem verici şeyleri yaratan.
+  * Arapça Hat: اَلضَّارُّ
+  * Okunuş: Yâ ed-Dârr
+  * Kısa Anlam: Zarar vermeyi dileyen.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İmtihanların O'nun izni olmadan kimseye dokunamayacağını bilip korkudan kurtulmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2270,7 +2270,7 @@ Allah dilemedikçe hiçbir varlık sana zarar veremez. Başına gelen sıkıntı
 
 🤲 *"Yâ Dârr! Başımıza gelen kederleri ve imtihanları hakkımızda arınma ve hayır vesilesi kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 1001 kere "Yâ Dârr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Dârr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2279,14 +2279,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 92 - En-Nâfi' (النَّافِعُ)
+## 92 - en-Nâfi (اَلنَّافِعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatında kalıcı bir fayda, bereket ve şifa mı arıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: النَّافِعُ
-  * Okunuş: Yâ Nâfi'
-  * Kısa Anlam: Fayda ve hayır veren şeyleri yaratan, yararlı kılan.
+  * Arapça Hat: اَلنَّافِعُ
+  * Okunuş: Yâ en-Nâfi
+  * Kısa Anlam: Fayda veren, dileğine fayda veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Sağlık, bereket ve insanlara faydalı bir ömür sürebilmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2295,7 +2295,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Nâfi'! Ömrümüzü, ilmimizi ve rızkımızı faydalı kıl; bizi insanlara hayrı dokunan kullarından eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 201 kere "Yâ Nâfi'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Nâfi'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2304,14 +2304,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 93 - En-Nûr (النُّورُ)
+## 93 - en-Nûr (اَلنُّورُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Zihnindeki ve kalbindeki koyu karanlıklardan çıkış yolu mu arıyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: النُّورُ
-  * Okunuş: Yâ Nûr
-  * Kısa Anlam: Âlemleri nurlandıran, kalpleri aydınlatan, hakikatin ışığı.
+  * Arapça Hat: اَلنُّورُ
+  * Okunuş: Yâ en-Nûr
+  * Kısa Anlam: Nurlandıran, nur kaynağı.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Kalbini, aklını ve hayatını ilahi rehberliğin nuruyla aydınlatmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2320,7 +2320,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Nûr! Kalbimize nur, gözümüze nur, kabrimize nur ver; bizi nurunla karanlıklardan aydınlığa çıkar."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 256 kere "Yâ Nûr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Nûr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2329,14 +2329,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 94 - El-Hâdî (الْهَادِي)
+## 94 - el-Hâdî (اَلْهَادِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Yolunu kaybettiğini hissedip nereye gideceğini bilemiyor musun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْهَادِي
-  * Okunuş: Yâ Hâdî
-  * Kısa Anlam: Hidayet veren, kullarını doğru ve selametli yola ulaştıran.
+  * Arapça Hat: اَلْهَادِي
+  * Okunuş: Yâ el-Hâdî
+  * Kısa Anlam: Hidayet veren.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Şaşkınlıktan kurtulup dosdoğru istikamet üzere yaşamak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2345,7 +2345,7 @@ Karanlık bir gecede deniz feneri gibi yol gösteren Hâdî olan Allah'tır. Ak�
 
 🤲 *"Yâ Hâdî! Bizi doğru yola, kendilerine nimet verdiğin salihlerin yoluna ilet; şaşırtma ve saptırma."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 20 kere "Yâ Hâdî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Hâdî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2354,14 +2354,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 95 - El-Bedî' (الْبَدِيعُ)
+## 95 - el-Bedî (اَلْبَدِيعُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Hayatında daha önce hiç görülmemiş mucizevi bir güzellik mi istiyorsun?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَدِيعُ
-  * Okunuş: Yâ Bedî'
-  * Kısa Anlam: Eşsiz, benzersiz ve hayranlık uyandıran harikalar yaratan.
+  * Arapça Hat: اَلْبَدِيعُ
+  * Okunuş: Yâ el-Bedî
+  * Kısa Anlam: Eşsiz güzellikler yaratan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Hayatında daha önce görülmemiş hayırlı ve benzersiz kapıların açılması için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2370,7 +2370,7 @@ Hiç örneği yokken kâinatı kusursuz bir sanatla inşa eden Bedî' olan Rabbi
 
 🤲 *"Yâ Bedî'! Hayatımıza benzersiz güzellikler ihsan et; bizi sanatına hayran, şükrünü eda edenlerden eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 86 kere "Yâ Bedî'"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bedî'"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2379,14 +2379,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 96 - El-Bâkî (الْبَاقِي)
+## 96 - el-Bâkî (اَلْبَاقِي)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Sevdiğin her şeyin bir gün elinden kayıp gideceği korkusu mu var?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْبَاقِي
-  * Okunuş: Yâ Bâkî
-  * Kısa Anlam: Varlığının sonu olmayan, ebedi olan, asla yok olmayacak tek varlık.
+  * Arapça Hat: اَلْبَاقِي
+  * Okunuş: Yâ el-Bâkî
+  * Kısa Anlam: Varlığının sonu olmayan, ebedi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: 'Yâ Bâkî Entel Bâkî' sırrıyla fani kederlerden sıyrılıp ebediyete tutunmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2395,7 +2395,7 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 🤲 *"Yâ Bâkî! Kalbimizi fani sevgilerden arındır, bizi ebedi rızana ve cennetine nail eyle."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 113 kere "Yâ Bâkî"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Bâkî"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2404,14 +2404,14 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 97 - El-Vâris (الْوَارِثُ)
+## 97 - el-Vâris (اَلْوَارِثُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Bütün dünya malının sonunda kime kalacağını hiç düşündün mü?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الْوَارِثُ
-  * Okunuş: Yâ Vâris
-  * Kısa Anlam: Bütün fani varlıklar yok olduktan sonra her şeyin tek ve asıl varisi.
+  * Arapça Hat: اَلْوَارِثُ
+  * Okunuş: Yâ el-Vâris
+  * Kısa Anlam: Her şeyin gerçek varisi.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: Mal mülk hırsından kurtulup kalıcı manevi miraslar bırakabilmek için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2420,7 +2420,7 @@ Sahip olduğun her şey geçicidir. Mülk elden ele gezer ve en sonunda asıl sa
 
 🤲 *"Yâ Vâris! Bizi cennetin varislerinden eyle; arkamızda hayırla anılacak salih ameller bırakmayı nasip et."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 707 kere "Yâ Vâris"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Vâris"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
@@ -2429,39 +2429,39 @@ Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan 
 
 ---
 
-## 98 - Er-Reşîd (الرَّشِيدُ)
+## 98 - er-Raşîd (اَلرَّشِيدُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
-* **0-3 sn (Kanca):** "Hangi kararı vereceğini bilemeyip çıkmaz bir sokakta mısın?"
+* **0-3 sn (Kanca):** "Hayatın koşturmacasında en çok kime ihtiyacın olduğunu unuttun mu?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الرَّشِيدُ
-  * Okunuş: Yâ Reşîd
-  * Kısa Anlam: Bütün işleri dosdoğru ve hikmetli hedefine ulaştıran, en doğru yolu gösteren.
-* **7-11 sn (Tefekkür/Niyet):** "Niyet: Hayati kararlarda en doğru ve isabetli yolu bulup feraha ermek için."
+  * Arapça Hat: اَلرَّشِيدُ
+  * Okunuş: Yâ er-Raşîd
+  * Kısa Anlam: Doğru yolu gösteren.
+* **7-11 sn (Tefekkür/Niyet):** "Niyet: Tüm varlığınla O'na yönelmek ve kalbini O'nun adıyla doyurmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
 ### 2. Instagram Açıklama Metni (Caption)
-Akıl ve tecrübe bazen kifayetsiz kalır, insan ne yapacağını bilemez. Reşîd olan Allah'a danışan ve O'ndan rehberlik dileyen asla pişman olmaz. O seni en isabetli yola, en selametli sonuca ulaştırır.
+Bazen kime sığınacağını bilemezsin. Ama er-Raşîd ismi, sana tek bir kapıyı işaret eder.
 
-🤲 *"Yâ Reşîd! Bize işlerimizde rüşd ve basiret ver; bizi yanlış kararlardan ve pişmanlıklardan koru."*
+🤲 *"Yâ er-Raşîd! Bizleri senin yolundan ayırma, kalbimize inşirah ver."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 514 kere "Yâ Reşîd"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ er-Raşîd"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
-#resid #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+#erraşîd #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #reelskeşfet
 
 ---
 
-## 99 - Es-Sabûr (الصَّبُورُ)
+## 99 - es-Sabûr (اَلصَّبُورُ)
 
 ### 1. Reels Video Metin Katmanı (Ekrana Gelecek Sıralı Yazılar)
 * **0-3 sn (Kanca):** "Artık sabredecek gücün kalmadı ve pes etmek üzere misin?"
 * **3-7 sn (Merkez Kağıt Alanı):**
-  * Arapça Hat: الصَّبُورُ
-  * Okunuş: Yâ Sabûr
-  * Kısa Anlam: Sonsuz sabır sahibi, cezalandırmada asla acele etmeyen, sabredenleri seven.
+  * Arapça Hat: اَلصَّبُورُ
+  * Okunuş: Yâ es-Sabûr
+  * Kısa Anlam: Çok sabırlı olan.
 * **7-11 sn (Tefekkür/Niyet):** "Niyet: İmtihanların ağırlığı karşısında tükenmeyen ilahi bir sabır gücüne kavuşmak için."
 * **11-14 sn (Kapanış / CTA):** "Darda kaldığında hatırlamak için kaydet."
 
@@ -2470,9 +2470,12 @@ Sabır, boyun eğmek değil; neticenin Allah'a ait olduğunu bilip dik durmaktı
 
 🤲 *"Yâ Sabûr! Kalbimize sabr-ı cemil ihsan eyle; daralan göğsümüzü ferahlat ve bizi sabredenlerin müjdesine nail kıl."*
 
-*Ebced / Tavsiye Edilen Zikir Adedi:* 298 kere "Yâ Sabûr"
+*Ebced / Tavsiye Edilen Zikir Adedi:* 99 kere "Yâ Sabûr"
 
 Daha sonra hatırlamak ve dua niyetiyle okumak için kaydetmeyi, ihtiyacı olan bir dostunla paylaşmayı unutma.
 
 ### 3. Hashtag Seti
 #sabur #esmaülhüsna #allahinisimleri #duavakti #tefekkür #huzur #ayetler #dinisözler #zikir #reelskeşfet
+
+---
+
